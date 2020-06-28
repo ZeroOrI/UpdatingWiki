@@ -501,12 +501,13 @@ Kei Karuizawa (軽かる井い沢ざわ 恵けい, Karuizawa Kei) is a student o
 
 #### Background B
 
-She is a prominent figure of class. Being gifted with an attractive personality, she is considered to be the girl's leader of class D. Her development in the story is worth reading. Despite her looks and attitude she displays and the relationship between her and Hirata, she has her bunch of secrets that she cannot afford to reveal to others.
+She is a prominent figure of class. Being gifted with an attractive personality, she is considered to be the girl's leader of class D. ~~Her development in the story is worth reading~~[4](#4change). 
 
 [Return to content](#content)
 
 #### Appearance B
 
+*Kei's appearance changed drastically since 1st volume. In it she was presented as*[5](#5change)
 Kei is a teenage girl of average height with waist-length blonde hair that is tied in a ponytail and purple eyes. Her school uniform consists of a light blue dress shirt below the red school blazer with rolled-up sleeves and a short white skirt. She walks in standard school shoes with light blue calf-length socks. She predominantly wears a blue ribbon around her collar. In a more casual situation, she simply wraps her school blazer around her waist and rolls up her dress shirt sleeves.
 
 [Return to content](#content)
@@ -597,12 +598,42 @@ Based on Ike’s conversation, it sounded like Hirata was dating
 Karuizawa. Watching Karuizawa from afar, I saw that she was gazing
 lovingly at him from across the room. 
 ```
+
+[:arrow_up:](#general-b)
+
 ##### 2change
 
 ![Kei](https://vignette.wikia.nocookie.net/youkoso-jitsuryoku-shijou-shugi-no-kyoushitsu-e/images/a/a0/Kei_Karuizawa_EN_School_Database.jpg/revision/latest?cb=20200614063200)
 
+[:arrow_up:](#general-b)
+
 ##### 3change
-This is official translation from Seven Seas.
+This is from official translation from Seven Seas.
+
+[:arrow_up:](#basic-b)
+
+
+##### 4change
+This is subjective opinion. 
+
+[:arrow_up:](#background-b)
+
+##### 4change
+This is subjective opinion. 
+
+[:arrow_up:](#background-b)
+
+##### 4change
+This is subjective opinion. 
+
+[:arrow_up:](#background-b)
+
+##### 5change
+```
+It was true that Karuizawa certainly was one of those gyaru types with tanned skin and everything, but she was plenty cute. 
+```
+
+[:arrow_up:](#appearence-b)
 
 [Return to content](#content)
 
