@@ -1,4 +1,5 @@
 # Kei Karuizawa
+![Kei_Kuruizawa](https://kei.moe/gallery#gallery-23)
 ## Content
 
 * [Old Information](#old-information)
@@ -114,6 +115,32 @@ English | Bryn Apprill
 ## Updated Information
 [Return to content](#content)
 ### Overview B
+Kei | Kuruizawa
+------------ | -------------
+Japanese | 軽井沢 恵
+Rōmaji | Karuizawa Kei
+Characteristics|
+Gender | Female :female_sign:
+Birthday | :pisces:	8th Marth
+Height | 154 cm
+Hair Colour | Gold Gradient
+Eye Colour | Violet Gradient
+Measurements | B76(C)/W54/H77
+Professional Status|
+Status | Active
+Student ID | S01T004718
+1st Year Class | 1-D 
+2nd Year Class | 2-D
+Affiliation | Advanced Nurturing High School
+Occupation | Student
+Private Point | 3159 
+Debut|
+Light Novel | Volume 2
+Manga | Volume 1, Room 4
+Anime | Episode 1
+Portrayal |
+Japanese | Ayana Tekatatsu
+English | Bryn Apprill
 [Return to content](#content)
 #### General B
 [Return to content](#content)
