@@ -517,11 +517,11 @@ Kei is a teenage girl of average height with waist-length blonde hair that is ti
 
 #### Personality B
 
-Kei is an outgoing person who spends most of her time with the girls at school and her boyfriend Yōsuke Hirata . __Even though she pretended to be nice in front of Hirata, she was domineering with other ladies.__ [5.5](#5.5change) __Karuizawa is very self-centered person, who won't care about feelings of other.__[5.75](#5.75change)
+Kei is an outgoing person who spends most of her time with the girls at school and her boyfriend Yōsuke Hirata . __Even though she pretended to be nice in front of Hirata, she was domineering with other ladies.__ [5.5](#5.5change) __Karuizawa is very self-centered person, who won't care about feelings of other.__ [5.75](#5.75change)
 
 She seems to be a bit of a mooch, as after spending all her points from the first month and D-Class not receiving any, due to their penalties, she asked the girls of her class to lend her some money to buy the 'essentials', managing to gain at least 2000 points from Kikyō Kushida.
 
-She doesn't ~~take notic of~~**care about** less prominent people in the class. This was seen when she mentioned Kiyotaka Ayanokōji being ~~invisible"~~ **gloomy, lecherous wallflower**[5.78](#5.78change) after Suzune nominated him as a guard with Yōsuke. ~~Ironically, she befriended him in the light novels and they were very close, even being impressed by his abilities and going on a first name basis as she eventually starts to develop romantic feelings for him.~~[6](#6change).
+She doesn't ~~take notic of~~**care about** less prominent people in the class. This was seen when she mentioned Kiyotaka Ayanokōji being ~~invisible"~~ **gloomy, lecherous wallflower**[5.78](#5.78change) after Suzune nominated him as a guard with Yōsuke. ~~Ironically, she befriended him in the light novels and they were very close, even being impressed by his abilities and going on a first name basis as she eventually starts to develop romantic feelings for him.~~ [6](#6change).
 
 __Spoilers__ 
 
@@ -575,7 +575,7 @@ During the anime pool filler episode, Kei saw Suzune walking out of the apartmen
 
 Later Kei, like all the other first years, took part in the school cruise, where she was seen calling Yōsuke over to hang out with her friends. When the cruise ship headed to an island, all first-year students were told they need to survive for more than a week with basic materials. Kei got into an argument with Teruhiko Yukimura about the hygienic materials they would need for survival, specifically the need for a toilet. Kanji Ike joined the argument as well, but after setting up camp, he surprised Kei, as he apologized for his words since he went through a similar event when camping as a child. Touched by this, Kei apologized for not understanding his reasons as well.
 
-Towards the end of the survival test week, Kei was found crying in the girl's tent as her underwear was apparently stolen. The girls of her class had Yōsuke check all the boys and their luggage to find it. After minutes of searching, Yōsuke then found the underwear in Kiyotaka Ayanokōji's luggage but refrained from telling anyone.~~since he (rightfully) suspected that Ayanokōji was set up by someone else.~~[8](#8change)
+Towards the end of the survival test week, Kei was found crying in the girl's tent as her underwear was apparently stolen. The girls of her class had Yōsuke check all the boys and their luggage to find it. After minutes of searching, Yōsuke then found the underwear in Kiyotaka Ayanokōji's luggage but refrained from telling anyone.~~since he (rightfully) suspected that Ayanokōji was set up by someone else.~~[8] (#8change)
 
 The next day, Kei and the other girls told the boys to build a separate camp from them because of the incident the day before. Kei had Yōsuke watch over the boys in the class while they moved, but Suzune requested that another boy should check over Yōsuke, since he could potentially be a threat as well. Though Kei defended her boyfriend, she agreed to the request but wondered which boy should help as all the other boys are deemed untrustworthy. Suzune then proposed that Kiyotaka be the second guard since he doesn't seem to have a lecherous side.
 
@@ -591,22 +591,29 @@ The next morning, Kei was seen cleaning in the camp along with the girls. At the
 
 **Kei Karuizawa apparently begins to date Yōsuke Hirata according to rumors that are spreading among the students.**
 
-**After school is out for one day, The Idiot Trio invites Kiyotaka to go out with them for the evening, including that Kikyō would also be coming. She shows up and admits that she had invited Yōsuke Hirata, Kei Karuizawa, Nene Mori, and Chiaki Matsushita to join them after they accendenlty meet each over. The awkward group leaves to go look around campus. While they were hanging around the mall, Kei spent 30.000 points on different clothes. They talk a bit about relationships until the group's conversation turns into one about the monthly point balances. As everyone expresses their opinions about the school's point balances, Kei said that 100.000 points isn't enough for her.**[9.5][#9.5change]
+**After school is out for one day, The Idiot Trio invites Kiyotaka to go out with them for the evening, including that Kikyō would also be coming. She shows up and admits that she had invited Yōsuke Hirata, Kei Karuizawa, Nene Mori, and Chiaki Matsushita to join them after they accendenlty meet each over. The awkward group leaves to go look around campus. While they were hanging around the mall, Kei spent 30.000 points on different clothes. They talk a bit about relationships until the group's conversation turns into one about the monthly point balances. As everyone expresses their opinions about the school's point balances, Kei said that 100.000 points isn't enough for her.**[9.5] [#9.5change]
 
 **After spending all her points from the first month and D-Class not receiving any, due to their penalties, she asked the girls of her class to lend her some money to buy the 'essentials', managing to gain at least 2000 points from Kikyō Kushida and other girls from her class.**
 
-**When Chabashira announces to the class that Sudō had gotten in a fight a few days earlier with C-Class students and that the two sides had given conflicting reports of what happened. Many of the students from Class 1-D begin to voice their frustration for Sudō and his attitude. Although students voice their dissatisfaction, Yōsuke Hirata and Kei Karuizawa back her up and the atmosphere in the class changes into one motivated to prove Sudō innocent.**[10][#4.75change]
+**When Chabashira announces to the class that Sudō had gotten in a fight a few days earlier with C-Class students and that the two sides had given conflicting reports of what happened. Many of the students from Class 1-D begin to voice their frustration for Sudō and his attitude. Although students voice their dissatisfaction, Yōsuke Hirata and Kei Karuizawa back her up and the atmosphere in the class changes into one motivated to prove Sudō innocent.** [10](#4.75change)
 
-**After school, two groups of students were formed in order to search for the potential witness to the event, with Hirata and Karuizawa leading one group and Kushida leading the other.**[11](#12change)
+**After school, two groups of students were formed in order to search for the potential witness to the event, with Hirata and Karuizawa leading one group and Kushida leading the other.** [11](#12change)
 
-**The first-year students of the Advanced Nurturing High School went on a luxurious liner for a 2-week cruise trip prepared by the school, after the end-of-term exam. Kei and her friend in particular were enjoying the atmosphere and sceneries.**[12](#13change)
+**The first-year students of the Advanced Nurturing High School went on a luxurious liner for a 2-week cruise trip prepared by the school, after the end-of-term exam. Kei and her friend in particular were enjoying the atmosphere and sceneries.** [12](#13change)
 
-**Arrived on island Yōsuke Hirata lists and discusses the needs of camping spots and necessities. The girls and boys sides, particularly Shinohara and Ike, start arguing again about the toilet matter. Since a temporary one costs 20 points, the boys want to use just the cardboard ones to preserve their points as much as possible and only spend them when necessary, while the girls object to the idea. When girls asked opinion of Kei, she said that they should save as many points as possible, even if they have to use cardbox toilet**[13](#11change)
+**Arrived on island Yōsuke Hirata lists and discusses the needs of camping spots and necessities. The girls and boys sides, particularly Shinohara and Ike, start arguing again about the toilet matter. Since a temporary one costs 20 points, the boys want to use just the cardboard ones to preserve their points as much as possible and only spend them when necessary, while the girls object to the idea. When girls asked opinion of Kei, she said that they should save as many points as possible, even if they have to use cardbox toilet** [13](#11change)
+
 **Towards the end of the survival test week, Kei was found crying in the girl's tent as her underwear was apparently stolen. The girls of her class had Yōsuke check all the boys and their luggage to find it.**
+
 **While sleeping, the boys suddenly get waken up by the girls, who appear upset. Shinohara informs that Karuizawa's underwear has been stolen. As their luggage was put outside the tents to make space, Shinohara believes someone has gone through them and taken it. Karuizawa is in tears and being comforted by other girls in the tent, while the boys become alerted of the situation.**
+
 **The girls request to live separately from the boys as they still believe the culprit is among them. D-Class's unity start falling apart as both sides have a huge argument about it. The girls, lead by Karuizawa and Shinohara, ask Hirata for help as they can trust him, but Suzune opposes against it. Suzune explains her reasoning and wants another boy, in this case Kiyotaka, to watch over Hirata. The girls cast their doubts on him, but Airi tries to defend him. Karuizawa lashes out at Airi and starts teasing her, with other girls joining in. Unable to bear it, Airi runs off into the forest.**[14](#14change)
 
 **After further explanations from Suzune, Karuizawa agrees to let Kiyotaka be on guard as he seems to be the most harmless and Hirata is fine with it. Trying to calm both parties, Hirata voices his thoughts over the matter, stating that he does not want the class to doubt their own classmates. Someone then mentions Ibuki as a possible suspect but Shinohara and Karuizawa still keep their suspicions on the boys.**
+
+**Unlike the boys’ tent, which was Spartan-like in its lack of comfort, the girls’ tent was completely different. It was spacious, with a floor mat on the ground so that they wouldn’t have to sleep on the hard earth. There were several pillows inflated with air. On top of that was a battery-powered cordless fan. Girls hadn’t sacrificed anything from the very start. They’d simply bought whatever they needed. It was Karuizawa-san and the others asked for these. Apparently, they’d secretly indulged themselves quite well.** [15](#15change)
+
+**When D-Class returns to the ship, they met Suzune, that still looking pale, and the students gather around her.  Karuizawa apologises for what she said, stating that Ibuki was the underwear theft and Kiyotaka has told them everything. She says that Suzune had tried to chase after Ibuki, and she also found out C-Class and A-Class leaders and told Hirata about it.**
 
 __Spoilers__
 There was another exam on the ship after their return from the survival island. In this exam, their objective was to find a traitor hidden among the groups that were divided into 12 different groups based on the Chinese zodiac's names among all classes. Kei was put into the same group as Kiyotaka, Teruhiko Yukimura, Hideo Sotomura, and students from other classes such as Honami Ichinose from B-Class, Machida from A-Class, and Mio Ibuki and Shiho Manabe from C-Class. Kei couldn't hide her dissatisfaction when seeing Kiyotaka and others as her groupmates.
@@ -698,7 +705,7 @@ It was true that Karuizawa certainly was one of those gyaru types with tanned sk
 
 [:arrow_up:](#appearence-b)
 
-##### 5change
+##### 6change
 This is not about her personality.
 
 [:arrow_up:](#personality-b)
@@ -716,11 +723,6 @@ No, no. Karuizawa definitely seemed like that kind of girl. Even though she pret
 
 [:arrow_up:](#personality-b)
 
-
-##### 6change
-2nd year 1st Volume Chapter 5 Part 9. Conversation with Sato.
-
-[:arrow_up:](#personality-b)
 
 ##### 8change
 He suspected Ayanokoji, he just knew that if he told somebody there will another conflict.
@@ -791,6 +793,15 @@ After school, the class divided into groups to meet up with people and ask aroun
 [:arrow_up:](#plot-b)
 
 ##### 13change
+
+Volume 3 Chapter 1
+
+```
+“This view is incredible! I’m honestly super moved right now!” A group of girls led by Karuizawa came out from the ship’s cabin. Karuizawa pointed out to the expansive ocean, wearing a radiant smile. 
+```
+[:arrow_up:](#plot-b)
+
+##### 14change
 Volume 3 Chapter 6
 ```
 
@@ -809,6 +820,23 @@ The other girls joined Karuizawa in laughing out loud.
 “That’s…! W-well… Ah!” “Heh, isn’t that a good thing, though? You like him, and no one else does, right? Hey, will you confess to him here? I’ll even help you out!”
 “Ah!”
 Sakura, unable to bear this attention any longer, ran off into the forest. Kushida chased after her, wisely judging it d
+```
+
+[:arrow_up:](#plot-b)
+
+##### 15change
+Volume 3 Chapter 6
+```
+Unlike the boys’ tent, which was Spartan-like in its lack of comfort, the girls’ tent was completely different. It was spacious, with a floor mat on the ground so that they wouldn’t have to sleep on the hard earth. There were several pillows inflated with air. On top of that was a battery-powered cordless fan.
+“The tent on the other side has the exact same things in it, too. A total of twelve points.” 
+“I thought the girls were putting up with the heat unusually well. So this is how you’re getting through it.” They hadn’t sacrificed anything from the very start. They’d simply bought whatever they needed.
+“Karuizawa-san and the others asked for these.” Apparently, they’d secretly indulged themselves quite well.
+
+“I only found out after they’d already ordered everything. It’s difficult to do anything when the rules say anyone may buy an item and spend points.”
+Just like how Kouenji had withdrawn so early in the test. 
+“Karuizawa-san reported this to Hirata-kun, so he definitely knew about it. But you didn’t know, nor did he inform anyone else. I think he absolutely should have shared this information.” Horikita had her arms crossed.
+She did have a point, but I doubted Hirata had stayed quiet out of malice. Maybe he’d just wanted to avoid unnecessary confusion? If Karuizawa had reported properly to Hirata, then the amount could have been evaluated.
+“I understand what you mean, but there’s nothing I can really say about it. We can’t get spent points back, and there aren’t many days left before the test ends. Karuizawa and the others probably won’t spend any more points,” I said.
 ```
 
 [:arrow_up:](#plot-b)
