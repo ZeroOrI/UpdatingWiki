@@ -1,5 +1,5 @@
 # Kei Karuizawa
-![Kei_Kuruizawa](https://kei.moe/gallery#gallery-23)
+![Kei_Kuruizawa](https://vignette.wikia.nocookie.net/youkoso-jitsuryoku-shijou-shugi-no-kyoushitsu-e/images/9/99/Kei_Karuizawa_LN_2nd_Year_Arc_visual.png/revision/latest?cb=20191125124817)
 ## Content
 
 * [Old Information](#old-information)
