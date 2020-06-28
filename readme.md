@@ -130,7 +130,7 @@ In volume 4 of the LN's, it was revealed that in her earlier years Kei was bulli
 [Return to content](#content)
 
 #### Abilities A
-She doesn't take notice of less prominent people in the class. This was seen when she mentioned Kiyotaka Ayanokōji being "invisible" after Suzune nominated him as a guard with Yōsuke. Ironically, she befriended him in the light novels and they were very close, even being impressed by his abilities and going on a first name basis as she eventually starts to develop romantic feelings for him.
+Kei was assessed as being subpar by the school. Her absences and grades in middle school were direct reasons for her being placed in D-Class. She doesn't like academics nor sports but is surprisingly able to compete with others. She has immense mental strength, according to both Kiyotaka and Kakeru.
 Evaluation | Kei Karuizawa
 ------------ | -------------
 Academic Ability |	 D- 
@@ -478,7 +478,7 @@ Affiliation | Advanced Nurturing High School
 Occupation | Student
 Private Point | 3159 
 Debut|
-Light Novel | ~~Volume 2~~ *Volume 1* [1](#1change)
+Light Novel | ~~Volume 2~~ __Volume 1__ [1](#1change)
 Manga | Volume 1, Room 4
 Anime | Episode 1
 Portrayal |
@@ -493,7 +493,7 @@ English | Bryn Apprill
 
 > ~~In the end, even after I entered this school. Nothing had changed. No, perhaps it was that I had no intention of changing anything from the start. For better or for worse, it was the same as that time. The reason for that was very simple. ... Because I myself wanted this.~~
 
-> In the end, nothing changed even after I came to this school. No, that’s wrong… Maybe I never had any intention of changing. For better or worse, it’s always been the same for me. After all, I understand myself better than anyone else. [3](#3change)
+> __In the end, nothing changed even after I came to this school. No, that’s wrong… Maybe I never had any intention of changing. For better or worse, it’s always been the same for me. After all, I understand myself better than anyone else.__ [3](#3change)
 
 Kei Karuizawa (軽かる井い沢ざわ 恵けい, Karuizawa Kei) is a student of Class 2-D. She sits in the second row, the second seat from the left, next to Yōsuke Hirata, the class's representative.
 
@@ -501,35 +501,41 @@ Kei Karuizawa (軽かる井い沢ざわ 恵けい, Karuizawa Kei) is a student o
 
 #### Background B
 
-She is a prominent figure of class. Being gifted with an attractive personality, she is considered to be the girl's leader of class D. ~~Her development in the story is worth reading~~[4](#4change). 
+She is a prominent figure of class.~~Being gifted with an attractive personality~~[3.5](#3.5change) __Being at the top of hierarchy* she is considered to be the girl's leader of class D.* Thanks to strength of her will she could motivate entire class.__[4.75](#4.75change)
+ ~~Her development in the story is worth reading~~[4](#4change). ~~Despite her looks and attitude she displays and the relationship between her and Hirata, she has her bunch of secrets that she cannot afford to reveal to others.~~[4.5](#4.5change) 
+__After begging of school she almost immediately started dating with Hirata, on of the most popular guy at school, which boosted her influence at the class. She and Hirata is only pair which open about their relationships at entire class. Also they've considered as ideal pair. __
 
 [Return to content](#content)
 
 #### Appearance B
 
-*Kei's appearance changed drastically since 1st volume. In it she was presented as*[5](#5change)
+
+
 Kei is a teenage girl of average height with waist-length blonde hair that is tied in a ponytail and purple eyes. Her school uniform consists of a light blue dress shirt below the red school blazer with rolled-up sleeves and a short white skirt. She walks in standard school shoes with light blue calf-length socks. She predominantly wears a blue ribbon around her collar. In a more casual situation, she simply wraps her school blazer around her waist and rolls up her dress shirt sleeves.
 
 [Return to content](#content)
 
 #### Personality B
 
-Kei is an outgoing person who spends most of her time with the girls at school and Yōsuke Hirata (her boyfriend). Typically she speaks for the girls in the class, acting as one of the leaders along with Yōsuke and eventually Suzune Horikita.
+Kei is an outgoing person who spends most of her time with the girls at school and her boyfriend Yōsuke Hirata . __Even though she pretended to be nice in front of Hirata, she was domineering with other ladies.__ [5.5](#5.5change) __Karuizawa is very self-centered person, who won't care about feelings of other.__[5.75](#5.75change)
 
 She seems to be a bit of a mooch, as after spending all her points from the first month and D-Class not receiving any, due to their penalties, she asked the girls of her class to lend her some money to buy the 'essentials', managing to gain at least 2000 points from Kikyō Kushida.
 
-She doesn't take notice of less prominent people in the class. This was seen when she mentioned Kiyotaka Ayanokōji being "invisible" after Suzune nominated him as a guard with Yōsuke. Ironically, she befriended him in the light novels and they were very close, even being impressed by his abilities and going on a first name basis as she eventually starts to develop romantic feelings for him.
+She doesn't take notice of less prominent people in the class. This was seen when she mentioned Kiyotaka Ayanokōji being "invisible" after Suzune nominated him as a guard with Yōsuke. ~~Ironically, she befriended him in the light novels and they were very close, even being impressed by his abilities and going on a first name basis as she eventually starts to develop romantic feelings for him.~~[6](#6change).
 
 __Spoilers__ 
 
-In volume 4 of the LN's, it was revealed that in her earlier years Kei was bullied in school, resulting in a physical scar and a lingering mental scar. To help prevent this happening again at her new high school, she started going out with Yōsuke Hirata, the most popular guy in class. This gave her a sense of security to just be herself without worrying about being targeted for abuse. Although this wasn't a genuine relationship, Yōsuke did know about the circumstances and went along with it to protect Kei.
+In volume 4 of the LN's, it was revealed that in her earlier years Kei was bullied in school, resulting in a physical scar and a lingering mental scar. To help prevent this happening again at her new high school, she started going out with Yōsuke Hirata, the most popular guy in class. __Even if she was scared that Hirata could betray her, she didn't have a choice and tried this.__  This gave her a sense of security to just be herself without worrying about being targeted for abuse. Although this wasn't a genuine relationship, Yōsuke did know about the circumstances and went along with it to protect Kei.
+__All her personality that she's shown previously was only an image to protect herself. She thinks of herself as parasite who can't survive on its own. But with flow a time she builds her new self, and finally accepts herself.__
+
 
 
 [Return to content](#content)
 
 #### Abilities B
 
-She doesn't take notice of less prominent people in the class. This was seen when she mentioned Kiyotaka Ayanokōji being "invisible" after Suzune nominated him as a guard with Yōsuke. Ironically, she befriended him in the light novels and they were very close, even being impressed by his abilities and going on a first name basis as she eventually starts to develop romantic feelings for him.
+Kei was assessed as being subpar by the school. Her absences and grades in middle school were direct reasons for her being placed in D-Class. She doesn't like academics nor sports but is surprisingly able to compete with others. She has immense mental strength, according to both Kiyotaka and Kakeru.
+
 Evaluation | Kei Karuizawa
 ------------ | -------------
 Academic Ability |	 D- 
@@ -541,6 +547,9 @@ Cooperativeness	| E+
 [Return to content](#content)
 
 #### Plot B
+
+~~**PLOT**~~
+**Anime**
 
 In the anime, Kei, like the other first years, listened to the speech given by Manabu Horikita, welcoming the first years to their new school. She was seen in the class talking to Satsuki Shinohara before Yōsuke Hirata asked the class to introduce themselves, agreeing with the idea.
 
@@ -560,8 +569,14 @@ Kei recalled that Kiyotaka was often 'invisible' during class, admitting to hers
 
 The next morning, Kei was seen cleaning in the camp along with the girls. At the time of the class points announcement, she and the entire class were shocked to hear that D-Class came in the first place. Later that same day on the cruise ship, Kei and the others thanked Suzune for her brilliant plan, though, unbeknown to them that Kiyotaka actually planned everything but gave Suzune all the credit to boost her popularity in the class cementing her place as a dependable leader.
 
+================================================================================================
+
+**new section**
+
+**LN Plot**
+
 __Spoilers__
-In the light novel, there was another exam on the ship after their return from the survival island. In this exam, their objective was to find a traitor hidden among the groups that were divided into 12 different groups based on the Chinese zodiac's names among all classes. Kei was put into the same group as Kiyotaka, Teruhiko Yukimura, Hideo Sotomura, and students from other classes such as Honami Ichinose from B-Class, Machida from A-Class, and Mio Ibuki and Shiho Manabe from C-Class. Kei couldn't hide her dissatisfaction when seeing Kiyotaka and others as her groupmates.
+There was another exam on the ship after their return from the survival island. In this exam, their objective was to find a traitor hidden among the groups that were divided into 12 different groups based on the Chinese zodiac's names among all classes. Kei was put into the same group as Kiyotaka, Teruhiko Yukimura, Hideo Sotomura, and students from other classes such as Honami Ichinose from B-Class, Machida from A-Class, and Mio Ibuki and Shiho Manabe from C-Class. Kei couldn't hide her dissatisfaction when seeing Kiyotaka and others as her groupmates.
 
 Kei was seen not taking part in the group discussions to expose the traitor, but she was often seen flirting with the handsome Machida from the A-Class, which eventually pissed off Manabe and her C class friends. Machida seems to taken interest in Kei due to her cuteness and he had shown a protective behavior toward Kei. Manabe and her friends then brought up the topic of how Kei shoved one of her friends, Rika, and asked for her apology. Kei then feigned ignorance and kept using Machida as a shield, which further pissed Manabe off.
 
@@ -585,6 +600,7 @@ Kiyotaka thought that Kei's reactions were too extreme, so he asked Hirata and l
 * As D-Class is for those with defective traits, Kei's defect is her low grades and for previous absences during middle school.
 * Kei ranks #8 in the "Female Character" category in the 2019 edition of Takarajimasha's Kono Light Novel ga Sugoi! guidebook.
   * In the 2020 edition, she is ranked #1.
+* *Kei's appearance changed drastically since 1st volume. In it she was presented as typical gyaru girl with tanned skid and ton of make-up.Since 2nd Volume she was portrayed completly different.*[5](#5change)
   
 [Return to content](#content)
 
@@ -612,28 +628,63 @@ This is from official translation from Seven Seas.
 
 [:arrow_up:](#basic-b)
 
+##### 3.5change
+She wasn't gifted with attractive personality.
+
+[:arrow_up:](#background-b)
 
 ##### 4change
 This is subjective opinion. 
 
 [:arrow_up:](#background-b)
 
-##### 4change
-This is subjective opinion. 
+##### 4.5change
+This is spoiler.
 
 [:arrow_up:](#background-b)
 
-##### 4change
-This is subjective opinion. 
+##### 4.75change
+2nd Volume 3 Chapter
+``` 
+If Kushida lived by the softness of her heart, then Karuizawa lived by the strength of her will. Perhaps it was because of Kushida and Karuizawa’s influence that many of the girls started to express their support. 
+...
+Hirata, Kushida, and Karuizawa had attracted the rest of our class’s admiration. 
+```
 
 [:arrow_up:](#background-b)
 
 ##### 5change
+Volume 1 Chapter 6 Part 3:
 ```
 It was true that Karuizawa certainly was one of those gyaru types with tanned skin and everything, but she was plenty cute. 
 ```
 
 [:arrow_up:](#appearence-b)
+
+##### 5change
+This is not about her personality.
+
+[:arrow_up:](#personality-b)
+
+##### 5.5change
+4th Volume Chapter 2:
+```
+No, no. Karuizawa definitely seemed like that kind of girl. Even though she pretended to be nice in front of Hirata, she was domineering with other ladies. I wondered if Hirata had categorized her as not being “that type of girl.” 
+```
+
+[:arrow_up:](#personality-b)
+
+##### 5.75change
+2nd year 1st Volume Chapter 5 Part 9. Conversation with Sato.
+
+[:arrow_up:](#personality-b)
+
+
+##### 6change
+2nd year 1st Volume Chapter 5 Part 9. Conversation with Sato.
+
+[:arrow_up:](#personality-b)
+
 
 [Return to content](#content)
 
