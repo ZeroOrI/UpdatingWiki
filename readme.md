@@ -501,7 +501,7 @@ Kei Karuizawa (軽かる井い沢ざわ 恵けい, Karuizawa Kei) is a student o
 
 #### Background B
 
-She is a prominent figure of class.~~Being gifted with an attractive personality~~[3.5](#3.5change) __Being at the top of hierarchy* she is considered to be the girl's leader of class D.* Thanks to strength of her will she could motivate entire class.__[4.75](#4.75change)
+She is a prominent figure of class.~~Being gifted with an attractive personality~~[3.5](#3.5change) __Being at the top of hierarchy she is considered to be the girl's leader of class D. Thanks to strength of her will she could motivate entire class.__[4.75](#4.75change)
  ~~Her development in the story is worth reading~~[4](#4change). ~~Despite her looks and attitude she displays and the relationship between her and Hirata, she has her bunch of secrets that she cannot afford to reveal to others.~~[4.5](#4.5change) 
 __After begging of school she almost immediately started dating with Hirata, on of the most popular guy at school, which boosted her influence at the class. She and Hirata is only pair which open about their relationships at entire class. Also they've considered as ideal pair. __
 
@@ -536,6 +536,8 @@ __All her personality that she's shown previously was only an image to protect h
 
 Kei was assessed as being subpar by the school. Her absences and grades in middle school were direct reasons for her being placed in D-Class. She doesn't like academics nor sports but is surprisingly able to compete with others. She has immense mental strength, according to both Kiyotaka and Kakeru.
 
+**1st year information**
+
 Evaluation | Kei Karuizawa
 ------------ | -------------
 Academic Ability |	 D- 
@@ -543,6 +545,18 @@ Intelligence	| D-
 Decision Making	| C- 
 Physical Ability	| D 
 Cooperativeness	| E+ 
+
+**OAA 2nd year information**
+
+OAA | Kei Karuizawa
+------------ | -------------
+Academic Ability | D+ (40)
+Adaptability | B- (61)
+Physical Ability | C- (44)	
+Contribution | D+ (40)
+Overall | C (47)
+
+[7](https://youkosozitsuryoku-2nd.com/character/)
 
 [Return to content](#content)
 
@@ -561,7 +575,7 @@ During the anime pool filler episode, Kei saw Suzune walking out of the apartmen
 
 Later Kei, like all the other first years, took part in the school cruise, where she was seen calling Yōsuke over to hang out with her friends. When the cruise ship headed to an island, all first-year students were told they need to survive for more than a week with basic materials. Kei got into an argument with Teruhiko Yukimura about the hygienic materials they would need for survival, specifically the need for a toilet. Kanji Ike joined the argument as well, but after setting up camp, he surprised Kei, as he apologized for his words since he went through a similar event when camping as a child. Touched by this, Kei apologized for not understanding his reasons as well.
 
-Towards the end of the survival test week, Kei was found crying in the girl's tent as her underwear was apparently stolen. The girls of her class had Yōsuke check all the boys and their luggage to find it. After minutes of searching, Yōsuke then found the underwear in Kiyotaka Ayanokōji's luggage but refrained from telling anyone, since he (rightfully) suspected that Ayanokōji was set up by someone else.
+Towards the end of the survival test week, Kei was found crying in the girl's tent as her underwear was apparently stolen. The girls of her class had Yōsuke check all the boys and their luggage to find it. After minutes of searching, Yōsuke then found the underwear in Kiyotaka Ayanokōji's luggage but refrained from telling anyone.~~since he (rightfully) suspected that Ayanokōji was set up by someone else.~~[8](#8change)
 
 The next day, Kei and the other girls told the boys to build a separate camp from them because of the incident the day before. Kei had Yōsuke watch over the boys in the class while they moved, but Suzune requested that another boy should check over Yōsuke, since he could potentially be a threat as well. Though Kei defended her boyfriend, she agreed to the request but wondered which boy should help as all the other boys are deemed untrustworthy. Suzune then proposed that Kiyotaka be the second guard since he doesn't seem to have a lecherous side.
 
@@ -569,20 +583,39 @@ Kei recalled that Kiyotaka was often 'invisible' during class, admitting to hers
 
 The next morning, Kei was seen cleaning in the camp along with the girls. At the time of the class points announcement, she and the entire class were shocked to hear that D-Class came in the first place. Later that same day on the cruise ship, Kei and the others thanked Suzune for her brilliant plan, though, unbeknown to them that Kiyotaka actually planned everything but gave Suzune all the credit to boost her popularity in the class cementing her place as a dependable leader.
 
-================================================================================================
+
+```==================================```
 
 **new section**
 
+**Anime and LN comparison**
+ There is list by volume of thing that anime changed or erased.
+* Volume 1: 
+  * 
+  * In this volume we learnt that Karuizawa is very easy going person through "triple date" between Kiyotaka's group and. But in anime from this was only left her small talk with Shinohara where we learnt about last part.[9.5](#9.5change)
+* Volume 2:
+  * This volume was debut Kei as girl's leader of class 1-D. Kei, Hirata and Kushida united class to believe in Sudo and organized group for searching for evidence.  While anime cut off all of her scenes.[10](#10change)
+* Volume 3: 
+  * It was Shinohara who suggested idea of spending point for better toilet. And it was Shinohara who was arguing with Ike about it, while Kei understoot that they should keep as many points as it possible.[11](#11change)
+* Volume 4:
+* Volume 4.5:
+
 **LN Plot**
+**Anime adapted first 3 volumes of light novel and pool episode from volume 4.5. But scenes related to Kei was cut off or changed drasically.**
+**Kei was introduced as girlfriend of Yosuke Hirata. **
 
 __Spoilers__
 There was another exam on the ship after their return from the survival island. In this exam, their objective was to find a traitor hidden among the groups that were divided into 12 different groups based on the Chinese zodiac's names among all classes. Kei was put into the same group as Kiyotaka, Teruhiko Yukimura, Hideo Sotomura, and students from other classes such as Honami Ichinose from B-Class, Machida from A-Class, and Mio Ibuki and Shiho Manabe from C-Class. Kei couldn't hide her dissatisfaction when seeing Kiyotaka and others as her groupmates.
 
 Kei was seen not taking part in the group discussions to expose the traitor, but she was often seen flirting with the handsome Machida from the A-Class, which eventually pissed off Manabe and her C class friends. Machida seems to taken interest in Kei due to her cuteness and he had shown a protective behavior toward Kei. Manabe and her friends then brought up the topic of how Kei shoved one of her friends, Rika, and asked for her apology. Kei then feigned ignorance and kept using Machida as a shield, which further pissed Manabe off.
 
-After one of their group meetings, Kiyotaka and Teruhiko saw Kei getting dragged into the emergency stairs and getting confronted by Manabe and others. Manabe was still confronting Kei about the incident that happened to Rika, but Kei was being stubborn and neglected the fact that she pushed Rika. As the argument got heated up, Manabe and others lost their patience and started making physical contact with Kei. Though they began by shoving her shoulder, even this caused Kei to show strange symptoms for her, breathing raggedly and curling into a fetal position. Manabe and her friends then proceeded to grab Kei's hair and forcefully pulled Kei up, and saying that they wanted to hit Kei's face. This act of physical bullying really caused Kei to lose her previous arrogance and attitude, causing her to begin to shake and tear up to the point where the previous Karuizawa Kei seemed nothing more than a façade. Before the situation could turn even worse, Teruhiko, who couldn’t bear to watch it anymore, came to interrupt them. The situation did not get better until Kiyotaka said that he saw a teacher and said it was better for them to leave. Manabe and others left, and Kei recovered. She then brushed off Teruhiko, who showed concerns, and told him and Kiyotaka not to let anyone know about this.
+After one of their group meetings, Kiyotaka and Teruhiko saw Kei getting dragged into the emergency stairs and getting confronted by Manabe and others. Manabe was still confronting Kei about the incident that happened to Rika, but Kei was being stubborn and neglected the fact that she pushed Rika. As the argument got heated up, Manabe and others lost their patience and started making physical contact with Kei. Though they began by shoving her shoulder, even this caused Kei to show strange symptoms for her, breathing raggedly and curling into a fetal position. Manabe and her friends then proceeded to grab Kei's hair and forcefully pulled Kei up, and saying that they wanted to hit Kei's face. This act of physical bullying really caused Kei to lose her previous arrogance and attitude, causing her to begin to shake and tear up to the point where the previous Karuizawa Kei seemed nothing more than a façade. Before the situation could turn even worse, ~~Teruhiko~~**Yukimura**, who couldn’t bear to watch it anymore, came to interrupt them. The situation did not get better until Kiyotaka said that he saw a teacher and said it was better for them to leave. Manabe and others left, and Kei recovered. She then brushed off ~~Teruhiko~~ **Yukimura**, who showed concerns, and told him and Kiyotaka not to let anyone know about this.
 
 Kiyotaka thought that Kei's reactions were too extreme, so he asked Hirata and learned about that Kei had been bullied since elementary school. As he learned that Kei was a capable person who could cover up her past using a new persona up until now, he decided to make her his pawn who would secretly completely obey his orders. He anonymously testified to Manabe about their issue, then used Hirata's phone to lure Kei to the ship's basement near the engine room and let Manabe's group get revenge for their friend. After Manabe's group left, he approached Kei and told her that he would save her in exchange for her obeying all orders. Kei tried to put up a strong front, but lost all will to resist when Kiyotaka glared deeply into her eye. He secretly took a video of Manabe bullying Kei at the staircase, which he used to save Kei by blackmailing Manabe's group into not approaching Kei or saying anything about Kei. Finally forming a relationship with Kei, he firstly made her go along with his plan, making A-class wrongly guess the group traitor.
+
+Before 
+
+**VOL**
 
 [Return to content](#content)
 
@@ -600,8 +633,8 @@ Kiyotaka thought that Kei's reactions were too extreme, so he asked Hirata and l
 * As D-Class is for those with defective traits, Kei's defect is her low grades and for previous absences during middle school.
 * Kei ranks #8 in the "Female Character" category in the 2019 edition of Takarajimasha's Kono Light Novel ga Sugoi! guidebook.
   * In the 2020 edition, she is ranked #1.
-* *Kei's appearance changed drastically since 1st volume. In it she was presented as typical gyaru girl with tanned skid and ton of make-up.Since 2nd Volume she was portrayed completly different.*[5](#5change)
-  
+* __Kei's appearance changed drastically since 1st volume. In it she was presented as typical gyaru girl with tanned skid and ton of make-up.Since 2nd Volume she was portrayed completly different.__[5](#5change)
+
 [Return to content](#content)
 
 #### References B
@@ -685,6 +718,66 @@ No, no. Karuizawa definitely seemed like that kind of girl. Even though she pret
 
 [:arrow_up:](#personality-b)
 
+##### 8change
+He suspected Ayanokoji, he just knew that if he told somebody there will another conflict.
+Vol 3 Chapter 6
+
+```
+Hirata didn’t have complete trust in me. He probably assumed there was a high chance I was the culprit. That was only natural, of course. From an outsider’s perspective, I was the one holding the underwear, and I’d offered up Ike’s name as the culprit. Hirata assigned me, a potential suspect, the role of detective to offer me a lifeline. At the same time, he’d issued a warning not to commit the offense a second time
+```
+[:arrow_up:](#plot-b)
+
+##### 9change
+
+Volume 4.5 Chapter 6
+
+```
+She always skipped swim class by claiming she didn’t feel well. Even though it was difficult to cut class due to the point system, the school couldn’t really question a student’s poor physical condition, especially not woman-specific problems. There were girls other than Karuizawa who refused to participate, probably for a variety of reasons. 
+```
+
+[:arrow_up:](#plot-b)
+
+##### 9.5change
+
+Volume 1 Chapter 6
+
+```
+Kushida had brought Hirata and his girlfriend (at least, I was pretty sure she was his girlfriend), Karuizawa. There were also two other girls, Matsushita and Mori, who always hung around Karuizawa. 
+...
+We checked out many different items on the racks and, afterward, went to a nearby café. Hirata carried the clothes that Karuizawa had purchased, which cost about 30,000 points.
+...
+“I just wish we had more points, you know? Maybe 200,000 or 300,000 a month? After buying cosmetics and clothes and stuff, I’ve already used up almost all of my points,” Karuizawa said."
+```
+
+[:arrow_up:](#plot-b)
+
+
+
+
+##### 10change
+
+Volume 2 Chapter 3
+
+```
+If Kushida lived by the softness of her heart, then Karuizawa lived by the strength of her will. Perhaps it was because of Kushida and Karuizawa’s influence that many of the girls started to express their support.  
+```
+
+[:arrow_up:](#plot-b)
+
+##### 11change
+
+Volume 2 Chapter 3
+
+
+```
+“It says that temporary toilets can be purchased and installed using our points.” 
+Shinohara and the other immediately gathered around the manual. 
+...
+
+“Really? Well, I suppose it’ll be tough, but I really want class points. I guess I’ll just grin and bear it.” An unexpected response from Karuizawa, who seemed like she would’ve been first to complain. “The school has already prepared for our needs. I can endure it. If we take baths in the river and use what we have here, don’t you think everything will be fine?” 
+
+```
+[:arrow_up:](#plot-b)
 
 [Return to content](#content)
 
@@ -696,21 +789,25 @@ No, no. Karuizawa definitely seemed like that kind of girl. Even though she pret
 
 She seems to have a close relationship with Yōsuke as when the school first started she cheered on his idea of the class introducing themselves.
 
-After several days of school, they seem to have formed a bond as they are often seen together. In truth, they're just pretending to be in a relationship in order for Kei to not get bullied in school so it is unknown how they really feel about each other.
+After several days of school, they seem to have formed a bond as they are often seen together. ~~In truth, they're just pretending to be in a relationship in order for Kei to not get bullied in school so it is unknown how they really feel about each other.~~ [1](#1ch) **They was seen by other as perfect couple.**
 
 __Spoilers__
 
-In the light novel of Volume 4, despite being promised to protect Karuizawa from being bullied by Manabe and her group, Yōsuke doesn't want to take a side and want to discuss it peacefully without using violence against someone. He did offer his help to her, but since he's not her real boyfriend, he didn't need to go that far for her. He also tells her that he won't help her like this and she won't be able to depend on him if there's nothing he can do for her.
+In truth, they're just pretending to be in a relationship in order for Kei to not get bullied in school ~~so it is unknown how they really feel about each other.~~ **Later both of them admitted that they've never liked each over.**[1.](#1.5ch)
+In the light novel of Volume 4, despite being promised to protect Karuizawa from being bullied by Manabe and her group, Yōsuke doesn't want to take a side and want to discuss it peacefully without using violence against someone. He did offer his help to her, **but he couldn't hurt someone even if it was somebody from class 1-C.** ~~but since he's not her real boyfriend, he didn't need to go that far for her.~~[2](#2ch) So he tells her that he won't help her **if she wants to rely on violence** ~~she won't be able to depend on him if there's nothing he can do for her.~~[3](#3ch) 
 
 __Yosuke's side__
 
 Yōsuke seems to have close a relationship with Kei as when school first started, she cheered on his idea of the class introducing themselves. After several days of school, they seem to have become a couple or at least formed a bond as they are often seen together.
 
-In truth, they're just pretending to be in a relationship so that Kei would not get bullied in school so it is unknown how they really feel about each other. However, it shown he does care for her as when Kei's underwear is stolen, Yōsuke searches the boys for them though he covers for Kiyotaka after finding them on him; he asks for the panties as he will suffer less being Kei's "boyfriend".
+~~In truth, they're just pretending to be in a relationship so that Kei would not get bullied in school so it is unknown how they really feel about each other.~~[3](#1ch) ~~However, it shown he does care for her as~~ When Kei's underwear is stolen, Yōsuke searches the boys for them though he covers for Kiyotaka after finding them on him; he asks for the panties as he will suffer less being Kei's "boyfriend".
 
 In return, she seems to trust him as she selected him to be part of the guards for the boys after the girls demanded the boys being separated from the girls. This was seen again as she defended him when Suzune hinted that he could possibly do mischievous activities while acting as a guard. However, she did see Suzune's point and went along with the latter's decision to make Kiyotaka a guard as well to keep an eye on Yōsuke.
 
-In the light novel of Volume 4, despite being promised to protect Karuizawa from being bullied by Manabe and her group, Yōsuke doesn't want to take a side and want to discuss it peacefully without using violence against someone. He did offer his help to her, but since he's not her real boyfriend, he didn't need to go that far for her. He also tells her that he won't help her like this and she won't be able to depend on him if there's nothing he can do for her.
+**Spoiler**
+In truth, they're just pretending to be in a relationship so that Kei would not get bullied in school so it is unknown how they really feel about each other.
+
+In the light novel of Volume 4, despite being promised to protect Karuizawa from being bullied by Manabe and her group, Yōsuke doesn't want to take a side and want to discuss it peacefully without using violence against someone. He did offer his help to her, **but he couldn't hurt someone even if it was somebody from class 1-C.** ~~but since he's not her real boyfriend, he didn't need to go that far for her.~~[4](#2ch) So he tells her that he won't help her **if she wants to rely on violence** ~~she won't be able to depend on him if there's nothing he can do for her.~~[5](#3ch) 
 
 
 [Return to content](#content)
@@ -863,6 +960,56 @@ __Chiaki's side__
 [Return to content](#content)
 
 #### References BB
+
+##### 1ch
+
+This should be in spoiler
+
+[:arrow_up:](#yosuke-hirata-b)
+
+##### 1.5ch
+
+Hirata's feeling
+
+Volume 11.5 Chapter 1:
+
+```
+“So you’re saying that you’ve never liked a girl before? Even now?”
+
+“Yeah...”
+
+```
+
+Kei's feeling
+
+[:arrow_up:](#yosuke-hirata-b)
+
+##### 2ch
+
+Hirata is type of guy who will help his classmates. He just doesn't like conflicts.
+
+Volume 4 Chapter 4:
+```
+“It doesn’t matter what the reason is. I can’t do what you want. You’re one of my classmates, Karuizawa-san. If you’re in trouble, I’ll help you, protect you. But I can’t hurt someone else to do that, even if they’re from Class C,” he said.
+```
+
+[:arrow_up:](#yosuke-hirata-b)
+
+##### 2ch
+Hirata's never said that she can't depend on him anymore
+
+Volume 4 Chapter 4:
+
+```
+“That’s not what I’m saying. I’ll do what I can to help you. When morning comes, I intend to speak with Manabe-san and her friends. I’ll tell them to stop harassing you, Karuizawa-san. You probably won’t like this, but I’ll tell them that you’ll apologize.”
+“I don’t want to!” Karuizawa had come to Hirata in order to take revenge on Manabe and her friends, and that spoke to her true personality— her real self. More than anything else, Karuizawa was afraid.
+“If that’s the case, then I can’t help you. I’m sorry.” Hirata was calm. Even now, he was composed. But he was also extremely reliable, and for someone like Karuizawa who needed that reliability, losing it was basically a death sentence.
+...
+“Whatever! If you’re not going to listen to me, then I don’t need you!” Karuizawa threw the can of juice she was holding down the hall. The contents spilled all over the place, and the sound echoed down the hall. “Our relationship is over. 
+"It’s over!” she shouted.
+```
+
+[:arrow_up:](#yosuke-hirata-b)
 
 [Return to content](#content)
 
