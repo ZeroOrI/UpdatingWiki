@@ -530,13 +530,13 @@ In volume 4 of the LN's, it was revealed that in her earlier years Kei was bulli
 
 __All her personality that she's shown previously was only an image to protect herself. She thinks of herself as parasite who can't survive on its own. But with flow a time she builds her new self, and finally accepts herself.__
 
-
-
 [Return to content](#content)
 
 #### Abilities B
 
-Kei was assessed as being subpar by the school. Her absences and grades in middle school were direct reasons for her being placed in D-Class. She doesn't like academics nor sports but is surprisingly able to compete with others. She has immense mental strength, according to both Kiyotaka and Kakeru.
+Kei was assessed as being subpar by the school. Her absences and grades in middle school were direct reasons for her being placed in D-Class, **Kiyotaka mentions that if she was studying normal all that time, she could archieve success.[6.31](#6.31change)** She doesn't like academics nor sports but is surprisingly able to compete with others __by sheer will__. She has immense mental strength, according to both Kiyotaka and Kakeru.
+**She is very good at improvisation, even if she can't comprehend the situation she is able act naturally.** **Also Kei has good leader quility, in situation when had clear disadvantage in her plan she could complete with stronger opponent.** [6.5](#6.5change)
+
 
 **1st year information**
 
@@ -577,7 +577,7 @@ During the anime pool filler episode, Kei saw Suzune walking out of the apartmen
 
 Later Kei, like all the other first years, took part in the school cruise, where she was seen calling Yōsuke over to hang out with her friends. When the cruise ship headed to an island, all first-year students were told they need to survive for more than a week with basic materials. Kei got into an argument with Teruhiko Yukimura about the hygienic materials they would need for survival, specifically the need for a toilet. Kanji Ike joined the argument as well, but after setting up camp, he surprised Kei, as he apologized for his words since he went through a similar event when camping as a child. Touched by this, Kei apologized for not understanding his reasons as well.
 
-Towards the end of the survival test week, Kei was found crying in the girl's tent as her underwear was apparently stolen. The girls of her class had Yōsuke check all the boys and their luggage to find it. After minutes of searching, Yōsuke then found the underwear in Kiyotaka Ayanokōji's luggage but refrained from telling anyone.~~since he (rightfully) suspected that Ayanokōji was set up by someone else.~~ [8] (#8change)
+Towards the end of the survival test week, Kei was found crying in the girl's tent as her underwear was apparently stolen. The girls of her class had Yōsuke check all the boys and their luggage to find it. After minutes of searching, Yōsuke then found the underwear in Kiyotaka Ayanokōji's luggage but refrained from telling anyone.~~since he (rightfully) suspected that Ayanokōji was set up by someone else.~~ [8](#8change)
 
 The next day, Kei and the other girls told the boys to build a separate camp from them because of the incident the day before. Kei had Yōsuke watch over the boys in the class while they moved, but Suzune requested that another boy should check over Yōsuke, since he could potentially be a threat as well. Though Kei defended her boyfriend, she agreed to the request but wondered which boy should help as all the other boys are deemed untrustworthy. Suzune then proposed that Kiyotaka be the second guard since he doesn't seem to have a lecherous side.
 
@@ -635,8 +635,14 @@ __Spoilers__
 
 **After Mashima finisged explanation the group of four are then told to leave but Yukimura suggests staying and having a chat as they're now in the same group for the exam. Karuizawa ignores his words and starts walking away while calling Hirata.** [19](#19changes)
 
-**When special exam started Karuizawa and Ibuki both sat a little further away, as if isolating themselves, both of them didn't tried to confront each-other. ** [20](#20change)
-Kei was seen not taking part in the group discussions to expose the traitor, but she was often seen flirting with the handsome Machida from the A-Class, which eventually pissed off Manabe and her C class friends. Machida seems to taken interest in Kei due to her cuteness and he had shown a protective behavior toward Kei. Manabe and her friends then brought up the topic of how Kei shoved one of her friends, Rika, and asked for her apology. Kei then feigned ignorance and kept using Machida as a shield, which further pissed Manabe off.
+**When special exam started Karuizawa and Ibuki both sat a little further away, as if isolating themselves, both of them didn't tried to confront each-other after underwear accident on island.** [20](#20change)
+
+**Karuizawa didn’t understand, but with just one simple question, a hierarchy formed within the group, and she was on top.** [21](#21change)
+**Even if Kei at start agreed on coorperation and on outcome number 1, but after suggestion from Machida that they doesn't have to discuss anything, she suddenly changed her opinion saying that she wanted to end this exam as soon as possible.** [22](#22change)
+~~Kei was seen not taking part in the group discussions to expose the traitor, but she was often seen flirting with the handsome Machida from the A-Class, which eventually pissed off Manabe and her C class friends. Machida seems to taken interest in Kei due to her cuteness and he had shown a protective behavior toward Kei. Manabe and her friends then brought up the topic of how Kei shoved one of her friends, Rika, and asked for her apology. Kei then feigned ignorance and kept using Machida as a shield, which further pissed Manabe off.~~ [23](#23change)
+**After discussion can't be continued  Manabe from Class C calls out to Karuizawa, asking about her encounter with Rika Morifuji, another Class C student. Manabe claims that Karuizawa has pushed Rika out of the line at a cafe, then asks Karuizawa to go and apologise to Rika. Karuizawa denies and claims she doesn't know anything, but retorts when Manabe tries to take a picture of her to confirm with Rika. During their confrontation Ibuki expresses his displeasure about actions of Manabe. As Manabe becomes more suspicious, Karuizawa turns to Machida for help, who tells Manabe to stop forcibly taking photos of Karuizawa and that it would be better to talk with Rika to confirm the story. Manabe eventually withdraws.** [24](#24change)
+
+**Situation gets worse when after meeting is over exhausted Kei accidentely steps on Manabe's foot. Even when Kei appologized, Manabe didn't accept it and only shouted at her.** [25](#25change)
 
 After one of their group meetings, Kiyotaka and Teruhiko saw Kei getting dragged into the emergency stairs and getting confronted by Manabe and others. Manabe was still confronting Kei about the incident that happened to Rika, but Kei was being stubborn and neglected the fact that she pushed Rika. As the argument got heated up, Manabe and others lost their patience and started making physical contact with Kei. Though they began by shoving her shoulder, even this caused Kei to show strange symptoms for her, breathing raggedly and curling into a fetal position. Manabe and her friends then proceeded to grab Kei's hair and forcefully pulled Kei up, and saying that they wanted to hit Kei's face. This act of physical bullying really caused Kei to lose her previous arrogance and attitude, causing her to begin to shake and tear up to the point where the previous Karuizawa Kei seemed nothing more than a façade. Before the situation could turn even worse, ~~Teruhiko~~**Yukimura**, who couldn’t bear to watch it anymore, came to interrupt them. The situation did not get better until Kiyotaka said that he saw a teacher and said it was better for them to leave. Manabe and others left, and Kei recovered. She then brushed off ~~Teruhiko~~ **Yukimura**, who showed concerns, and told him and Kiyotaka not to let anyone know about this.
 
@@ -727,6 +733,75 @@ It was true that Karuizawa certainly was one of those gyaru types with tanned sk
 This is not about her personality.
 
 [:arrow_up:](#personality-b)
+
+##### 6.31change
+2nd year 1st Volume Chapter 5
+Kiyo and Kei's study session
+
+[:arrow_up:](#abilities-b)
+
+##### 6.5change
+Volume 5 Chapter 3
+```
+“Hey, excuse me? I object to this, too. You’re okay with sentencing the unathletic students to lose, like Shinohara said? You think we can all come together in a situation like this?”
+Karuizawa spoke up, supporting Shinohara.
+She glared at Horikita. 
+“I’ve said as much. Do you understand my logic?” 
+“No. I don’t get it at all. Hey, what do you think, Kushida-san?” asked Karuizawa.
+Kushida had been strangely quiet during the meeting. She seemed slightly surprised, but spoke after a moment.
+“It’s tough. I’ve been thinking about how both sides feel. Like Horikita-san, I want us to succeed as a
+class. But, just like Shinohara-san said, everyone should have a chance to win. If there were some kind of middle-ground solution, that would be ideal. A strategy we could all get behind.” 
+Once Kushida was done, there were a lot of noises of assent. 
+Horikita seemed to have anticipated this idea.
+“Of course. I have a compromise that should be agreeable to both sides. Students who place at the top, and don’t need to boost their test scores, will use the private points they win to boost the test scores of students who place at the bottom. The entire class will share in the gains and losses of private points from the festival. I trust there will be no complaints?” asked Horikita.
+So, in exchange for lowering our chances of victory across the board, we less-athletic students would also offset the risks in case we were defeated.
+The bottom ten students across each grade level would still be in trouble, though.
+“Oh, yeah, that’d be fine,” said Sudou with a disdainful snort, as if he were calling the opposition pathetic whiners.
+“But that’s just for points. We’re still losing out on chances to win the big prize. What does everyone think about that?” 
+Karuizawa wasn’t letting this go. She looked over to her group of girls. 
+“If Karuizawa-san objects, then so do I, I guess.” 
+One after another, the girls followed her lead.
+“You’re objecting just because she objected? That’s completely illogical. This is an exam. It’s only natural that we focus on a winning strategy. The other class definitely isn’t weighed down by morons like you,”grumbled Horikita. 
+“You just don’t get it, do you, Horikita-san? I hate this plan, and the other girls hate it, too. So, you need to take our opinions into account. We have to make these competitions fair,” said Karuizawa.
+“Calm down, both of you,” said Hirata.
+“If we can’t agree, then we’ve got to have a majority vote.” 
+This had probably been inevitable.
+“I think we should vote,” continued Hirata. 
+“If Yousuke-kun says so, then I agree,” said Karuizawa. 
+“Fine. This isn’t the time to fight amongst ourselves. At any rate, I’ve offered my opinion. I hope you’ll all make the right decision,” said Horikita.
+She sat down in frustration and glared at me.
+“Ayanokouji-kun, can’t you tell Karuizawa-san to shut up?” she huffed. 
+“Uh, no. There’s no way I could do that,” I said. 
+“You’ve been talking to her lately, though. Haven’t you? Isn’t that why she’s getting carried away?”
+“No. Karuizawa’s always been like that,” I replied.
+“That’s certainly true,” Horikita muttered.
+She couldn’t hide her irritation with Karuizawa, whose opinion lacked logic, or with the girls who let someone else lead them around.
+“Now then,” said Hirata.
+“We have Horikita’s proposal, which focuses on ability, and Karuizawa-san’s, which prioritizes the individual. How about we decide which plan we prefer by a show of hands? If anyone finds choosing a side difficult, they can abstain.”
+Horikita wanted to win, while Karuizawa wanted everyone to feel valued. The class’s future would depend on whether people used their heads or their hearts.
+Of course, I myself had zero interest in the outcome.
+“All right. All those in favor of Horikita-san’s plan?” “Yeah. I agree with Horikita’s plan, of course,” said Sudou.
+“It’s about winning. When winners win, we all win. Ain’t that a good thing?” Sudou raised his hand.
+Those who had no confidence whatsoever in their athletic abilities, like Yukimura and Sakura, followed his lead.
+But the more capable students, along with Karuizawa’s group, didn’t raise their hands. 
+“Sixteen votes, then. Thank you. You can put your hands down.”
+“Wait a minute, Ayanokouji-kun. Don’t tell me you agree with Karuizawa-san’s plan?” said Horikita, who realized that I hadn’t raised my hand.
+“Relax. It’s my policy to abstain from voting.” 
+“In that case, you could just have voted for my plan,” she growled. 
+“Your plan isn’t necessarily right, is it?” I asked.
+“I can’t understand you. Giving the class the best-possible chance of winning will ultimately result in netting a lot of private points. Even if we only won a few matches here and there, the points would be significant. If you say that’s wrong, perhaps you can give me a clear reason why?” 
+“I didn’t say you were wrong. I’m just saying it’s not the only answer,” I replied.
+
+The students used as sacrificial lambs, sent out to be destroyed by strong opponents, would finish the sports festival without earning any points at all. 
+Horikita did understand that much, at least. But she also thought it was a necessary sacrifice in order to win.
+“The other students aren’t all as ambitious as you,” I told her.
+“All right. Next, we have Karuizawa-san’s plan. Anyone in favor of this plan, to win when we need to and have fun when we want to, please raise your hand,” said Hirata.
+Along with Karuizawa’s group, other students began raising their hands.
+“And the results of the majority vote are…sixteen votes for Horikitasan’s plan, and thirteen votes for Karuizawa-san’s. 
+It’s safe to say that everyone else abstained from voting?” 
+```
+
+[:arrow_up:](#abilities-b)
 
 ##### 5.5change
 4th Volume Chapter 2:
@@ -953,18 +1028,121 @@ Volume 4 Chapter 2 Part 3
 ```
 [:arrow_up:](#plot-b)
 
-##### 19change
+##### 20change
 Volume 4 Chapter 3 Part 1
 
 ```
-Naturally, the other classes were puzzled as well, not just Class D. Students mostly divided into natural groups based on their class, but Karuizawa and Ibuki both sat a little further away, as if isolating themselves. “Why did they…?” I muttered. “What’s the matter, Ayanokouji? Something on your mind?” “It’s nothing,” I said. I’d thought for sure that Karuizawa would confront Ibuki the moment she saw her. After all, Ibuki Mio had stolen Karuizawa’s underwear back on the island. You’d think she’d want revenge, but… Well, maybe Karuizawa was more mature than I’d thought, or maybe she’d already gotten her revenge. In any case, it was all rather unnatural. 
+Naturally, the other classes were puzzled as well, not just Class D.
+Students mostly divided into natural groups based on their class, but Karuizawa and Ibuki both sat a little further away, as if isolating themselves.
+“Why did they…?” I muttered.
+“What’s the matter, Ayanokouji? Something on your mind?” 
+“It’s nothing,” I said. 
+I’d thought for sure that Karuizawa would confront Ibuki the moment she saw her. After all, Ibuki Mio had stolen Karuizawa’s underwear back on the islan.
+You’d think she’d want revenge, but… Well, maybe Karuizawa was more mature than I’d thought, or maybe she’d already gotten her revenge.
+In any case, it was all rather unnatural. 
 ```
 
+[:arrow_up:](#plot-b)
+
+##### 21change
+
+Volume 4 Chapter 3 Part 1
+
+```
+Karuizawa didn’t understand, but with that simple question, a hierarchy formed within the group. The dam had burst. Yukimura and a girl from Class C named Manabe followed suit. They agreed with Karuizawa and said they obviously wanted to cooperate. If everyone wished for it, we’d all pass the test with Outcome #1. A natural thing to say. 
+```
+
+[:arrow_up:](#plot-b)
+
+##### 22change
+
+Volume 4 Chapter 3 Part 1
+```
+“I… To be completely honest, I’m annoyed. Even though you say we’ll get points, whether I get any points is a separate issue. But we may get points even if we do have a discussion… I don’t want to waste time fighting over what we’re doing. I just want this test to be over so we can have fun.” 
+```
+
+[:arrow_up:](#plot-b)
+
+##### 23change
+This lines has been replaced by others.
+
+[:arrow_up:](#plot-b)
+
+##### 24change
+Volume 4 Chapter 3 Part 1:
+
+```
+“Hey, you’re Karuizawa-san, right? There’s something I wanted to ask you,” said Manabe.
+Karuizawa quickly looked up from her phone screen. She hadn’t expected anyone to talk to her. 
+“What?” she asked. 
+“I might be mistaken, but…did you have a fight with Rika earlier in the summer?” 
+“Huh? What are you talking about? Who’s Rika?” asked Karuizawa.
+“She’s a girl from our class who wears glasses. She has her hair up in a bun, like a dango. Remember her?”
+“I don’t know her. Maybe you’re thinking of someone else.” 
+Karuizawa lowered her eyes back to her phone, as if deciding this conversation had nothing to do with her.
+However, the next words out of Manabe’s mouth changed things. 
+“Isn’t that strange, though? I’m sure we heard about it. We heard that Rika was bulled by a Class D girl named Karuizawa. Rika told us you cut in line and pushed her aside when she was waiting at the café.”
+“I don’t know what you’re talking about. Like, do you have some kind of problem with me?” asked Karuizawa.
+“No, not really. I’m just checking to see if it’s true. If it is true, though, I’d like you to apologize. Rika is the kind of girl to bottle everything up and stay quiet, so it’s up to us to help her deal with situations like this.” 
+Apparently Karuizawa had a reputation as a troublemaker outside our class as well. Class C was hard to deal with as a whole, so this made for big trouble ahead.
+Karuizawa decided to ignore Manabe. Manabe, looking frustrated, turned her phone’s camera toward Karuizawa.
+“You won’t mind if we check with Rika then, will you? I mean, if it wasn’t you, Karuizawa-san, then there won’t be any problem, right?” asked Manabe. 
+Karuizawa looked up and knocked the phone out of Manabe’s hands. She must have done it more forcefully than she thought, because Manabe’s phone tumbled to the ground, spinning as it fell. 
+“What the hell?!” shouted Manabe.
+“That’s what I should be saying! Don’t just take pictures of me without permission. I already told you that you had the wrong person,” Karuizawa snapped.
+Both sides claimed the other was wrong. The conflict was heating up. Ichinose watched it unfold, a bystander. 
+It was as if she was trying to determine who was right and wrong. 
+“What’ll you do if my phone’s broken?” shouted Manabe. 
+“I don’t know! Just ask the school for a new one,” answered Karuizawa.
+“I have some really precious photos stored on that phone, though.” 
+After hurriedly picking up her phone, Manabe glared at Karuizawa with resentment.
+Two of the other Class C students, who’d been watching the situation unfold, came to help Manabe stare Karuizawa down.
+“What? Are you saying I’m the bad guy here?” asked Karuizawa. 
+“If it wasn’t you, you wouldn’t get all angry and deny it like that, right? Let us take your picture,” said Manabe. 
+“But I don’t want you to.” 
+I thought that Karuizawa would’ve answered Manabe more forcefully, but her words were surprisingly weak.
+Or rather, there was some fear mixed in with her “tough girl” act. It might’ve been my imagination, though.
+“Perhaps the reason you’re denying it so much is because it’s true?” asked Manabe.
+Manabe pointed her phone’s camera at Karuizawa, as if intending to forcefully take her picture. The other two girls from Class C laughed like they were enjoying it.
+However, Ibuki didn’t share their sentiment. She looked scornfully over at Manabe, showing her contempt.
+“Stupid,” said Ibuki. 
+“‘Stupid’? What? This has nothing to do with you, Ibuki-san. You’re not friends with Rika, after all.”
+“That’s right. This absolutely has nothing to do with me. So I said what I thought as an outsider.” 
+Ibuki crossed her arms and looked away. Manabe didn’t appear to care for Ibuki’s attitude at all, but did not confront her.
+There was probably a clearly established hierarchy in Class C, and Ibuki was above Manabe. 
+“Anyway, just let me take your picture!” shouted Manabe.
+“No, I don’t want you to! Come on. Please, say something to her,” Karuizawa pleaded. For some reason, she turned to Machida, begging him to intervene. 
+“I won’t forgive you if you take my picture without permission. What do you think, Machida-kun?”
+“I agree. Manabe, Karuizawa has told you that she doesn’t want you to take her picture. Stop it,” Machida added. 
+“M-Machida-kun, this has nothing to do with you,” answered Manabe. 
+“From what I’ve heard just now, I think you’re the one in the wrong here, Manabe. Karuizawa told you she doesn’t know what you’re talking about, so it’s wrong for you to forcefully take her picture. Don’t you agree? I think it’s best to talk to your friend again and confirm if the story is true.” 
+Judging this situation fairly, Machida was correct. I certainly understood Manabe’s feelings in wanting to take the picture to ascertain the truth, but if the person tells you no, taking a picture without permission is rude.
+Confronted with that argument, Manabe and the other girls had no choice but to back down, though Manabe didn’t seem wholly convinced. 
+“Come on, lay off me. Thank you, Machida-kun,” said Karuizawa. Karuizawa looked up at him, her eyes full of gratitude.
+Even though the Class A students had distanced themselves from the rest of the group, they weren’t bad guys at all. 
+Takemoto and the others didn’t appear to be too interested, though. 
+“All I did was the right thing.” Machida blushed slightly.
+Perhaps this was the beginning of a new love? Karuizawa already had Hirata, though.
+Regardless, I got the feeling that the friction between Karuizawa and those Class C students would spark some real problems down the road.
+```
+
+[:arrow_up:](#plot-b)
+
+##### 25change
+
+Volume 4 Chapter 3 Part 2
+```
+Karuizawa, completely exhausted, got up to leave but accidentally pitched forward. Perhaps her legs were numb from sitting for so long.
+“Ouch!” shouted Manabe. 
+In a panic, Karuizawa had attempted to correct her footing, but staggered and stepped on Manabe’s foot. 
+“Ah, I didn’t mean to do that. I’m sorry,” Karuizawa mumbled, apologizing quickly before leaving the room.
+“Hey, what the hell?!” shouted Manabe. 
+She yelled at the rest of us as we left. I didn’t want to get caught in the middle of anything, so I averted my eyes and got out of there.
+```
 
 [:arrow_up:](#plot-b)
 
 [Return to content](#content)
-
 
 ### Relationships B
 
