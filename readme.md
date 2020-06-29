@@ -504,7 +504,7 @@ Kei Karuizawa (軽かる井い沢ざわ 恵けい, Karuizawa Kei) is a student o
 She is a prominent figure of class.~~Being gifted with an attractive personality~~ [3.5](#3.5change) __Being at the top of hierarchy she is considered to be the girl's leader of class D. Thanks to strength of her will she could motivate entire class.__ [4.75](#4.75change)
  ~~Her development in the story is worth reading~~[4](#4change). ~~Despite her looks and attitude she displays and the relationship between her and Hirata, she has her bunch of secrets that she cannot afford to reveal to others.~~ [4.5](#4.5change) 
  
-__After begging of school she almost immediately started dating with Hirata, on of the most popular guy at school, which boosted her influence at the class. She and Hirata is only pair which open about their relationships at entire class. Also they've considered as ideal pair. __
+__After begging of school she almost immediately started dating with Hirata, on of the most popular guy at school, which boosted her influence at the class. She and Hirata is only pair which open about their relationships at entire class. Also they've considered as ideal pair.__
 
 [Return to content](#content)
 
@@ -538,7 +538,7 @@ Kei was assessed as being subpar by the school. Her absences and grades in middl
 
 **She is very good at improvisation, even if she can't comprehend the situation she is able act naturally.** **Also Kei has good leader quility, in situation when had clear disadvantage in her plan she could complete with stronger opponent. Her position at the class almost unshakeable** [6.5](#6.5change)
 
-**She has very good judgment skill, ыhe could easily determine who to rely on and who not.**[6.51](#6.51change)
+**She has very good judgment skill, she could easily determine who to rely on and who not.**[6.51](#6.51change)
 
 
 **1st year information**
