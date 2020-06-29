@@ -535,7 +535,7 @@ __All her personality that she's shown previously was only an image to protect h
 #### Abilities B
 
 Kei was assessed as being subpar by the school. Her absences and grades in middle school were direct reasons for her being placed in D-Class, **Kiyotaka mentions that if she was studying normal all that time, she could archieve success.[6.31](#6.31change)** She doesn't like academics nor sports but is surprisingly able to compete with others __by sheer will__. She has immense mental strength, according to both Kiyotaka and Kakeru.
-**She is very good at improvisation, even if she can't comprehend the situation she is able act naturally.** **Also Kei has good leader quility, in situation when had clear disadvantage in her plan she could complete with stronger opponent.** [6.5](#6.5change)
+**She is very good at improvisation, even if she can't comprehend the situation she is able act naturally.** **Also Kei has good leader quility, in situation when had clear disadvantage in her plan she could complete with stronger opponent. Her position at the class almost unshakeable** [6.5](#6.5change)
 
 
 **1st year information**
@@ -643,6 +643,15 @@ __Spoilers__
 **After discussion can't be continued  Manabe from Class C calls out to Karuizawa, asking about her encounter with Rika Morifuji, another Class C student. Manabe claims that Karuizawa has pushed Rika out of the line at a cafe, then asks Karuizawa to go and apologise to Rika. Karuizawa denies and claims she doesn't know anything, but retorts when Manabe tries to take a picture of her to confirm with Rika. During their confrontation Ibuki expresses his displeasure about actions of Manabe. As Manabe becomes more suspicious, Karuizawa turns to Machida for help, who tells Manabe to stop forcibly taking photos of Karuizawa and that it would be better to talk with Rika to confirm the story. Manabe eventually withdraws.** [24](#24change)
 
 **Situation gets worse when after meeting is over exhausted Kei accidentely steps on Manabe's foot. Even when Kei appologized, Manabe didn't accept it and only shouted at her.** [25](#25change)
+
+**At second meeting becomes obvious that Karuizawa's current behaviour is very stange. She doesn't act as usual self. And the reason for that she is no more at the top of hierarchy.** [26](#26change)
+
+**Kiyotaka realises that she has been acting differently than usual. Kiyotaka then chases after Manabe and her friends in Class C. He calls out to them when they reach the elevator and mentions Karuizawa. This grabs their attention and Kiyotaka lies that he saw Karuizawa pushed over their friend at the cafe and wants to give them a heads up.** [27](#27change)
+
+**Kiyotaka becomes more and more curious about Karuizawa, and he dicides to talk about her with Suzune. He wonders about Kei's secret self**(#28change)
+
+**The first person who came at third meeting was Kei. She wanted to avoid contact with Manabe and other girls. Next person who came after her was Ayanokoji. She started to talking on phone ignoring him.** [29](#29change)
+
 
 After one of their group meetings, Kiyotaka and Teruhiko saw Kei getting dragged into the emergency stairs and getting confronted by Manabe and others. Manabe was still confronting Kei about the incident that happened to Rika, but Kei was being stubborn and neglected the fact that she pushed Rika. As the argument got heated up, Manabe and others lost their patience and started making physical contact with Kei. Though they began by shoving her shoulder, even this caused Kei to show strange symptoms for her, breathing raggedly and curling into a fetal position. Manabe and her friends then proceeded to grab Kei's hair and forcefully pulled Kei up, and saying that they wanted to hit Kei's face. This act of physical bullying really caused Kei to lose her previous arrogance and attitude, causing her to begin to shake and tear up to the point where the previous Karuizawa Kei seemed nothing more than a façade. Before the situation could turn even worse, ~~Teruhiko~~**Yukimura**, who couldn’t bear to watch it anymore, came to interrupt them. The situation did not get better until Kiyotaka said that he saw a teacher and said it was better for them to leave. Manabe and others left, and Kei recovered. She then brushed off ~~Teruhiko~~ **Yukimura**, who showed concerns, and told him and Kiyotaka not to let anyone know about this.
 
@@ -1138,6 +1147,123 @@ In a panic, Karuizawa had attempted to correct her footing, but staggered and st
 “Ah, I didn’t mean to do that. I’m sorry,” Karuizawa mumbled, apologizing quickly before leaving the room.
 “Hey, what the hell?!” shouted Manabe. 
 She yelled at the rest of us as we left. I didn’t want to get caught in the middle of anything, so I averted my eyes and got out of there.
+```
+
+[:arrow_up:](#plot-b)
+
+##### 26change
+Volume 4 Chapter 3 Part 4
+```
+Karuizawa sighed and went back to fiddling with her phone. 
+While there wasn’t any rule prohibiting phone use during the test, doing so while we were trying to find the VIP was a little rude. 
+Or maybe she was like the CIA or FBI, communicating with Hirata in real time so he could listen to our conversation? 
+I’d respect her if that were true, but it probably wasn’t the case. 
+Of course, knowing that Karuizawa didn’t usually put serious effort into anything, this wasn’t out of character. 
+But something felt off. It felt like something had been off ever since the test started. Karuizawa; the reunion with Ibuki; confronting Manabe.
+I realized that none of the things she’d been doing lately seemed like the “usual” Karuizawa. She was a strong presence in Class D.
+Whatever her reputation, she and Hirata often brought the class together. But here, she was practically a background character. 
+She had the potential to motivate others, and she wasn’t using it. When someone spoke to her, she would answer and then immediately shrink away. 
+Hirata was always Hirata, no matter the situation, and Kushida was always Kushida. However, that didn’t seem to be true for Karuizawa.
+```
+
+[:arrow_up:](#plot-b)
+
+##### 27change
+Volume 4 Chapter 3 Part 4
+
+```
+“Hey. Do you have a minute?”
+Manabe looked slightly on her guard, probably because she hadn’t expected me to come after her.
+“I heard about your problem with Karuizawa. Something about her pushing someone at the café, right?”
+“Yeah. Why do you ask?” snapped Manabe. 
+These girls wouldn’t normally want to chat with me, but that topic seemed to interest them. All three focused on me, like they were checking me out.
+“I’m not 100% sure, but I think I saw Karuizawa fight with a girl from another class,” I said.
+“That’s… Are you sure?” asked Manabe.
+Her voice was stiff, and she drew nearer. I shrunk slightly and nodded.
+“I think so. Well, I just kind of got this bad vibe, you know? I felt like she was acting like a jerk, so I thought I’d go ahead and tell you.” 
+```
+##### 28change
+```
+“Oh, uh, that’s not really what I meant. I meant there was something I wanted to ask you, as a girl.” 
+Since she’d probably get angrier no matter what I did, I cut to the chase.
+“I want information on Karuizawa.”
+I’d planned to contact Karuizawa, but had never talked to her before. If Karuizawa ranked the boys in our class, I likely would’ve been last.
+“You want to talk to me about Karuizawa?”
+“Yes, exactly.” I nodded. 
+“I’d like to know more about the people in my group, but it’s not easy. I should be able find out whatever I need to about the Professor and Yukimura, but I’m at a complete loss with Karuizawa. After the test on the island ended, Karuizawa invited you out to lunch. Right?”
+“I turned her down, though. You know that. I have no interest in Karuizawa-san. If you want information on her, why not talk to Hirata-kun? If he’s helping you, you’ll be able to contact her easily.” 
+That was certainly true. Unfortunately, prior to the test, I had also passed on the opportunity to have lunch with Karuizawa.
+Hirata probably remembered that, so I wanted to avoid asking him about this.
+“Do you think she’s the VIP? Is that what you’re worried about?” Horikita asked.
+“There’s that. But more than that, I can’t understand Karuizawa’s behavior. That’s why I’m worried.” 
+“Well, isn’t that none of your business? Besides, her behavior isn’t logical. I think it’s a waste of time,” she countered. 
+“Horikita, I don’t think it’s good to write people off like that.” 
+“Write them off? What are you talking about?” 
+“You and Karuizawa don’t get along at all because you’re both willful, so you see her as nothing more than a nuisance. You understand that she may also have strong points, too?”
+“She has strong points? I can’t really imagine any. Isn’t she just flawed?” 
+In terms of cooperativeness, Horikita was probably at the same level or even worse than Karuizawa. 
+“When you first see someone, you make judgments based on their appearance. You might determine if someone is cool or cute, for instance. Basically, you read people. Call it your first impression; that’s simple enough. Next, you learn about their inner self through conversation and seeing them in action. You’ll see whether they’re sociable, belligerent, passive, etc.” 
+Horikita crossed her arms, acting like my words were obvious. She waited for me to continue.
+“But that’s still just as superficial as their outside appearance. Their innermost thoughts aren’t going to be immediately apparent from that. For example, take Kushida, Ibuki, or even me. There’s a difference between a person’s outer and inner selves.”
+“So Karuizawa has some secret self?”
+“Almost everyone does. They may not be aware of it themselves. You do, too.” Whenever she came face to face with her older brother, she exposed her fragility. 
+```
+[:arrow_up:](#plot-b)
+
+##### 29change
+Volume 4 Kei SS
+
+```
+This was an event that happened not long after the special test started.
+
+I went earlier to the Rabbit group exam room.
+
+“I’ve come a bit early… but whatever”
+
+Actually I didn’t intend to arrive this early, but approximately 10 minutes is still in an acceptable extent.
+
+I only wanted to avoid meeting with Manabe and the other girls.
+
+The reason being “that incident”. Reopening old wounds in these unexpected circumstances had disrupted my mood. Standing worried in front of the door of the room was also strange, so I simply entered directly into the room. Eg… I only saw Ayanokouji-kun waiting alone sitting on a chair alone after entering the room. The disgusted expression I adopted in a flash was seen by him, but it didn’t matter.
+
+I didn’t want to approach him, so I made some distance with him. I chose the furthest place from him and I sat down.
+
+During the period of time after this, I was passing time chatting with my friends with my phone.
+
+After that, Rino wanted to have a phone call, so we did that.
+
+“Ah, hello Rino. What’s the situation over there? This side? Ah--, this side is not just terrible, the situation is at the limit. Even if I’m being separated from Hirata-kun, at least give they should give me some decent guys. This group is really full of malice.”
+
+It looked like there were a lot of girls in the group where Rino was allocated, so envious. I was having complicated feelings about thinking that they were in high spirits during my absence. Girls are certainly organisms that gossip behind the people they hate. In order to avoid issues from appearing after the test was finished, I should scout out in advance, in order to control them. This is the most important thing I should really be doing right now. After finishing the phone call with a few words, I inspected the chat log from start to finish to look for suspicious things. En, there shouldn’t be any problem. At present my presence is still working.
+
+Ayanokouji-kun, who was clamly waiting in the room, entered my field of vision.
+
+“Ah—right. Are you the Target? It seems that neither Yukimura-kun nor So…-kun are.”
+
+This thing was not important. I only asked in order to pass the time. How should I put it, I didn’t have any impression of this guy. He was an unremarkable guy in the classroom, but I could still find him from the corners of my memory. Why? Just by thinking a little I arrived at the answer.
+
+Just from appearance alone, Ayanokouji-kun doesn’t look bad at all. If he could socialize as well as Hirata-kun, maybe he could become a person whose popularity wouldn’t lose to him.
+
+“I’m not”
+
+He answered me briefly. No, totally impossible, he doesn’t possess dialogue skills. That’s why he is always mixed with old fashioned girls like Horikita-san and Sakura-san.
+
+“Ah, I see. Then it’s okay”
+
+“Do you believe me?”
+
+Was it because I was suspicious? Ayanokouji-kun looked at me while saying this.
+
+“Hah? You probably aren’t, right?”
+
+I gave a slightly angry reply and he immediately shifted his gaze and stayed silent. You are a man, so embarrassing.
+
+It’s useless to keep chatting with him. While thinking this, I took out my phone again.
+
+In the end, besides Hirata-kun, there are no real men in class D.
+
+That’s why I can’t leave his side.
+
 ```
 
 [:arrow_up:](#plot-b)
