@@ -501,8 +501,8 @@ Kei Karuizawa (軽かる井い沢ざわ 恵けい, Karuizawa Kei) is a student o
 
 #### Background B
 
-She is a prominent figure of class.~~Being gifted with an attractive personality~~ [3.5](#3.5change) __Being at the top of hierarchy she is considered to be the girl's leader of class D. Thanks to strength of her will she could motivate entire class.__ [4.75](#4.75change)
- ~~Her development in the story is worth reading~~[4](#4change). ~~Despite her looks and attitude she displays and the relationship between her and Hirata, she has her bunch of secrets that she cannot afford to reveal to others.~~ [4.5](#4.5change) 
+She is a prominent figure of class.~~Being gifted with an attractive personality~~ [350](#350change) __Being at the top of hierarchy she is considered to be the girl's leader of class D. Thanks to strength of her will she could motivate entire class.__ [475](#475change)
+ ~~Her development in the story is worth reading~~[4](#4change). ~~Despite her looks and attitude she displays and the relationship between her and Hirata, she has her bunch of secrets that she cannot afford to reveal to others.~~ [450](#450change) 
  
 __After begging of school she almost immediately started dating with Hirata, on of the most popular guy at school, which boosted her influence at the class. She and Hirata is only pair which open about their relationships at entire class. Also they've considered as ideal pair.__
 
@@ -516,11 +516,11 @@ Kei is a teenage girl of average height with waist-length blonde hair that is ti
 
 #### Personality B
 
-Kei is an outgoing person who spends most of her time with the girls at school and her boyfriend Yōsuke Hirata . __Even though she pretended to be nice in front of Hirata, she was domineering with other ladies.__ [5.5](#5.5change) __Karuizawa is very self-centered person, who won't care about feelings of other.__ [5.75](#5.75change)
+Kei is an outgoing person who spends most of her time with the girls at school and her boyfriend Yōsuke Hirata . __Even though she pretended to be nice in front of Hirata, she was domineering with other ladies.__ [550](#550change) __Karuizawa is very self-centered person, who won't care about feelings of other.__ [575](#575change)
 
 She seems to be a bit of a mooch, as after spending all her points from the first month and D-Class not receiving any, due to their penalties, she asked the girls of her class to lend her some money to buy the 'essentials', managing to gain at least 2000 points from Kikyō Kushida.
 
-She doesn't ~~take notic of~~**care about** less prominent people in the class. This was seen when she mentioned Kiyotaka Ayanokōji being ~~invisible"~~ **gloomy, lecherous wallflower**[5.78](#5.78change) after Suzune nominated him as a guard with Yōsuke. ~~Ironically, she befriended him in the light novels and they were very close, even being impressed by his abilities and going on a first name basis as she eventually starts to develop romantic feelings for him.~~ [6](#6change).
+She doesn't ~~take notic of~~**care about** less prominent people in the class. This was seen when she mentioned Kiyotaka Ayanokōji being ~~invisible"~~ **gloomy, lecherous wallflower**[578](#578change) after Suzune nominated him as a guard with Yōsuke. ~~Ironically, she befriended him in the light novels and they were very close, even being impressed by his abilities and going on a first name basis as she eventually starts to develop romantic feelings for him.~~ [6](#6change).
 
 __Spoilers__ 
 
@@ -532,11 +532,11 @@ __All her personality that she's shown previously was only an image to protect h
 
 #### Abilities B
 
-Kei was assessed as being subpar by the school. Her absences and grades in middle school were direct reasons for her being placed in D-Class, **Kiyotaka mentions that if she was studying normal all that time, she could archieve success.[6.31](#6.31change)** She doesn't like academics nor sports but is surprisingly able to compete with others __by sheer will__. She has immense mental strength, according to both Kiyotaka and Kakeru.
+Kei was assessed as being subpar by the school. Her absences and grades in middle school were direct reasons for her being placed in D-Class, **Kiyotaka mentions that if she was studying normal all that time, she could archieve success.[631](#631change)** She doesn't like academics nor sports but is surprisingly able to compete with others __by sheer will__. She has immense mental strength, according to both Kiyotaka and Kakeru.
 
-**She is very good at improvisation, even if she can't comprehend the situation she is able act naturally.** **Also Kei has good leader quility, in situation when had clear disadvantage in her plan she could complete with stronger opponent. Her position at the class almost unshakeable** [6.5](#6.5change)
+**She is very good at improvisation, even if she can't comprehend the situation she is able act naturally.** **Also Kei has good leader quility, in situation when had clear disadvantage in her plan she could complete with stronger opponent. Her position at the class almost unshakeable** [650](#650change)
 
-**She has very good judgment skill, she could easily determine who to rely on and who not.**[6.51](#6.51change)
+**She has very good judgment skill, she could easily determine who to rely on and who not.**[651](#651change)
 
 
 **1st year information**
@@ -595,11 +595,11 @@ The next morning, Kei was seen cleaning in the camp along with the girls. At the
 
 **Kei Karuizawa apparently begins to date Yōsuke Hirata according to rumors that are spreading among the students.**
 
-**After school is out for one day, The Idiot Trio invites Kiyotaka to go out with them for the evening, including that Kikyō would also be coming. She shows up and admits that she had invited Yōsuke Hirata, Kei Karuizawa, Nene Mori, and Chiaki Matsushita to join them after they accendenlty meet each over. The awkward group leaves to go look around campus. While they were hanging around the mall, Kei spent 30.000 points on different clothes. They talk a bit about relationships until the group's conversation turns into one about the monthly point balances. As everyone expresses their opinions about the school's point balances, Kei said that 100.000 points isn't enough for her.**[9.5] [#9.5change]
+**After school is out for one day, The Idiot Trio invites Kiyotaka to go out with them for the evening, including that Kikyō would also be coming. She shows up and admits that she had invited Yōsuke Hirata, Kei Karuizawa, Nene Mori, and Chiaki Matsushita to join them after they accendenlty meet each over. The awkward group leaves to go look around campus. While they were hanging around the mall, Kei spent 30.000 points on different clothes. They talk a bit about relationships until the group's conversation turns into one about the monthly point balances. As everyone expresses their opinions about the school's point balances, Kei said that 100.000 points isn't enough for her.**[950] [#950change]
 
 **After spending all her points from the first month and D-Class not receiving any, due to their penalties, she asked the girls of her class to lend her some money to buy the 'essentials', managing to gain at least 2000 points from Kikyō Kushida and other girls from her class.**
 
-**When Chabashira announces to the class that Sudō had gotten in a fight a few days earlier with C-Class students and that the two sides had given conflicting reports of what happened. Many of the students from Class 1-D begin to voice their frustration for Sudō and his attitude. Although students voice their dissatisfaction, Yōsuke Hirata and Kei Karuizawa back her up and the atmosphere in the class changes into one motivated to prove Sudō innocent.** [10](#4.75change)
+**When Chabashira announces to the class that Sudō had gotten in a fight a few days earlier with C-Class students and that the two sides had given conflicting reports of what happened. Many of the students from Class 1-D begin to voice their frustration for Sudō and his attitude. Although students voice their dissatisfaction, Yōsuke Hirata and Kei Karuizawa back her up and the atmosphere in the class changes into one motivated to prove Sudō innocent.** [10](#475change)
 
 **After school, two groups of students were formed in order to search for the potential witness to the event, with Hirata and Karuizawa leading one group and Kushida leading the other.** [11](#12change)
 
@@ -753,7 +753,7 @@ This is from official translation from Seven Seas.
 
 [:arrow_up:](#basic-b)
 
-##### 3.5change
+##### 350change
 She wasn't gifted with attractive personality.
 
 [:arrow_up:](#background-b)
@@ -763,12 +763,12 @@ This is subjective opinion.
 
 [:arrow_up:](#background-b)
 
-##### 4.5change
+##### 450change
 This is spoiler.
 
 [:arrow_up:](#background-b)
 
-##### 4.75change
+##### 475change
 2nd Volume 3 Chapter
 ``` 
 If Kushida lived by the softness of her heart, then Karuizawa lived by the strength of her will. Perhaps it was because of Kushida and Karuizawa’s influence that many of the girls started to express their support. 
@@ -791,13 +791,13 @@ This is not about her personality.
 
 [:arrow_up:](#personality-b)
 
-##### 6.31change
+##### 631change
 2nd year 1st Volume Chapter 5
 Kiyo and Kei's study session
 
 
 
-##### 6.51change
+##### 651change
 Volume 4 Chapter 4 Part  1
 
 ```
@@ -807,7 +807,7 @@ Karuizawa had definitely made the correct decision.
 
 [:arrow_up:](#abilities-b)
 
-##### 6.5change
+##### 650change
 Volume 5 Chapter 3
 ```
 “Hey, excuse me? I object to this, too. You’re okay with sentencing the unathletic students to lose, like Shinohara said? You think we can all come together in a situation like this?”
@@ -870,7 +870,7 @@ It’s safe to say that everyone else abstained from voting?”
 
 [:arrow_up:](#abilities-b)
 
-##### 5.5change
+##### 550change
 4th Volume Chapter 2:
 ```
 No, no. Karuizawa definitely seemed like that kind of girl. Even though she pretended to be nice in front of Hirata, she was domineering with other ladies. I wondered if Hirata had categorized her as not being “that type of girl.” 
@@ -878,7 +878,7 @@ No, no. Karuizawa definitely seemed like that kind of girl. Even though she pret
 
 [:arrow_up:](#personality-b)
 
-##### 5.75change
+##### 575change
 2nd year 1st Volume Chapter 5 Part 9. Conversation with Sato.
 
 [:arrow_up:](#personality-b)
@@ -903,7 +903,7 @@ She always skipped swim class by claiming she didn’t feel well. Even though it
 
 [:arrow_up:](#plot-b)
 
-##### 9.5change
+##### 950change
 
 Volume 1 Chapter 6
 
