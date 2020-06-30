@@ -706,7 +706,7 @@ __Spoilers__
 **Kiyotaka and Karuizawa meet at the cafe. Karuizawa was worried about the result of exam, but Kiyotaka reassured her.Soon after Hirata came, because of their last talk there was awkward silence between them. In just five more minutes before appointed time they are also soon joined by Hirata and Suzune. Previously Kiyotaka's said to Horikita that he will introduce her another piece for reaching class A, it this piece is Kei. After everyone gathered they started discussion about exam results.** [40](#40change)
 
 **At the end of summer vacation Kiyotaka called Kei to rest area. This spot became desserted due to heat, so nobody was there and could see them two them together. Ayanokoji apologized for this sudden call, but Kei replied that she still didn't do anything and was just hanging out in her room. It was because that she's already spent all her points, so when Kiyo asked about her plans for tommorow she answer that she was going to sleep. Kiyotake reminded that she will get 500.000 points in next month and teased her because she is a shopaholic and can't keep points.  When topic of dialogue came to points Karuizawa expressed her concerns about is it normal for students to have so much money.
-
+```
 “You should get a lot of points next month, though. I mean, after the last test.” 
 During the exam on the cruise ship, Karuizawa—who’d been the VIP —had worked together with me. We managed to keep her identity secret until the test ended. 
 Because of that, Karuizawa would receive 500,000 points as a reward come September.
