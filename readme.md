@@ -878,6 +878,15 @@ No, no. Karuizawa definitely seemed like that kind of girl. Even though she pret
 
 [:arrow_up:](#personality-b)
 
+##### 578change
+Volume 3 Chapter 6 Part 1
+
+```
+“Ha ha ha! Don’t make me laugh. He’s your only friend, isn’t he? There’s absolutely no way I can trust such a gloomy, lecherous wallflower,” Karuizawa said. 
+```
+
+[:arrow_up:](#personality-b)
+
 ##### 575change
 2nd year 1st Volume Chapter 5 Part 9. Conversation with Sato.
 
