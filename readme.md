@@ -705,7 +705,184 @@ __Spoilers__
 
 **Kiyotaka and Karuizawa meet at the cafe. Karuizawa was worried about the result of exam, but Kiyotaka reassured her.Soon after Hirata came, because of their last talk there was awkward silence between them. In just five more minutes before appointed time they are also soon joined by Hirata and Suzune. Previously Kiyotaka's said to Horikita that he will introduce her another piece for reaching class A, it this piece is Kei. After everyone gathered they started discussion about exam results.** [40](#40change)
 
+**At the end of summer vacation Kiyotaka called Kei to rest area. This spot became desserted due to heat, so nobody was there and could see them two them together. Ayanokoji apologized for this sudden call, but Kei replied that she still didn't do anything and was just hanging out in her room. It was because that she's already spent all her points, so when Kiyo asked about her plans for tommorow she answer that she was going to sleep. Kiyotake reminded that she will get 500.000 points in next month and teased her because she is a shopaholic and can't keep points.  When topic of dialogue came to points Karuizawa expressed her concerns about is it normal for students to have so much money.
 
+“You should get a lot of points next month, though. I mean, after the last test.” 
+During the exam on the cruise ship, Karuizawa—who’d been the VIP —had worked together with me. We managed to keep her identity secret until the test ended. 
+Because of that, Karuizawa would receive 500,000 points as a reward come September.
+“Yeah, I guess. I’ve picked out the clothes and accessories and stuff I want to get. But is it really okay to use all the points like that? Isn’t it better to save some?” 
+“You can hold yourself back?” I asked, teasing her a little.
+She puffed out her cheeks and glared at me. 
+“Well, it’s not that simple. When I have points, they seem to last less than a week,” she muttered. 
+Karuizawa mimed counting all the things she wanted on her fingers. She was out of fingers in no time. Just how many things did she plan to get anyway? 
+“But, like, even I know how important private points are. The school system’s really weird, right? You get, like, this ridiculously huge amount of points during special exams and stuff. Everyone else is wondering about that, too,” she observed.
+The regular student body was finally starting to suspect that something was up, apparently. I supposed that was natural. 
+If you suddenly received a large sum of money, you’d question the school’s motives. 
+You’d consider the possibility that private points weren’t just meant for use on one’s private desires. 
+“That’s true. Some students might get as many as 1,000,000 or 2,000,000 points,” I said. 
+“Yeah. Is it really okay to give high schoolers that much money? It’s definitely not normal.” 
+The points were sort of necessary for us to “survive” at school, which was probably why Karuizawa was unsure how best to use them. 
+For example, if you made a blunder that could result in your expulsion, you could make the problem go away with enough private points.
+Having a few million points on hand as insurance probably was a good idea.
+“There’s no reason to think about it too much. Looking too far ahead can drive you insane. If you retain ten to twenty percent of your monthly points, that should be enough,” I said. 
+You had to maintain a balance between your wants and needs. For Karuizawa, who’d always been a shopaholic, curbing her desires was hard. 
+Besides, if a former spendthrift suddenly became miserly, students in our class might get suspicious.
+I didn’t want anyone to connect her change in circumstances to me.
+“I want to ask you for a favor,” I said.
+“What, you’re not even going to apologize first for calling me out here on such a hot day?”
+“Want this?” 
+I handed her a bottle of tea I hadn’t drunk from yet. She hesitated, then reluctantly accepted it.
+“It’s a little warm,” she muttered. 
+“That’s the weather’s fault. Nothing I can do.”
+Some places nearby had recorded temperatures of forty degrees Celsius or higher. Just thinking the number made me feel hot.
+Karuizawa struggled to uncap her drink.
+“Hmph. Guess I got a loser.” 
+“A loser? You don’t usually get prizes in tea bottle caps.” 
+“That’s not funny, you know. I’m talking about how hard this is to open,” she grumbled. 
+Well, it had been a poor joke. I reached over, took the drink, twisted the cap, and returned it.
+“Thanks.” 
+After what’d happened on the boat, the distance between Karuizawa and I had diminished. 
+Before summer vacation, it would’ve been impossible for us to have this kind of conversation. She probably still didn’t trust me, but she showed no sign of that. 
+Karuizawa really understood self-control. To protect herself and her status, she could adapt to any environment. 
+“Tomorrow’s the last day of summer vacation. One of my friends invited me to make some fun summer memories.” 
+“What do you mean, summer memories? We don’t have fireworks or a festival or anything like that here, do we?” asked Karuizawa. 
+“The school has a big pool, right? It’s normally reserved for the swim club. Did you know that the restriction was lifted for today?”
+That pool was even bigger than the one we used during swim class. For the last three days of summer vacation, it was open for communal use. 
+When a huge crowd of students flooded the pool on the first day, the school put additional restrictions in place.
+Students could only use the pool once during those last three days. Apparently, the second day was really busy, too.
+“Ah. Now that you mention it, though, I’m not that interested in swimming,” muttered Karuizawa.
+She always skipped swim class by claiming she didn’t feel well. Even though it was difficult to cut class due to the point system, 
+the school couldn’t really question a student’s poor physical condition, especially not woman-specific problems. 
+There were girls other than Karuizawa who refused to participate, probably for a variety of reasons. 
+They might feel ill, not want other people to know they couldn’t swim well, or even hate swimming in the first place.
+Maybe they didn’t want to show that much skin around boys. And so on. However, Karuizawa’s circumstances were different. 
+A while ago, Karuizawa had been viciously bullied by her classmates. As a result, she had a terrible scar on her side. If someone saw it, it would definitely cause a stir.
+“Do you like swimming?” I asked her.
+“Hmm. Well, I don’t hate it, I guess. I haven’t gone swimming for years now, so I’ve probably forgotten how.” Karuizawa drank her tea and stared ahead as she replied.
+I could tell that wasn’t how she really felt. 
+“So, what, the guys want to make memories at the pool? You’re obviously just planning to be perverts.”
+I couldn’t deny that, actually. That was probably exactly their reasoning. 
+“So, what does this have to do with me?” asked Karuizawa.
+“Before I answer that, let me ask you one thing. Does the school really not know that you were bullied before?”
+“Huh?”
+Karuizawa looked puzzled for a moment, then turned to glare at me. Her polite façade was gone. I returned her stare.
+“You know I don’t want to talk about that, right?” she growled.
+“I’m not reopening old wounds for no reason. I’m asking because it’s relevant,” I replied.
+“But…” 
+This had to be a serious topic for Karuizawa. She seemed to come to a decision.
+“All right. I’m sure you must have a reason for this.” 
+She tried to swallow her anxieties. 
+“I definitely don’t think they know the truth about me being bullied. They might know about my leave of absence from school, or how many days off I took during junior high,
+but they probably think those were due to me being sick or skipping class, you know? Or they might just think I’m stupid. That’s probably why they put me in Class D.”
+Karuizawa sounded self-deprecating, but she was likely right. The school must’ve had a poor impression of her bad attendance record and low grades.
+“Even if the school investigates the matter, they probably won’t find any evidence of the bullying,” she added. 
+“You realize that the world is magnificently rotten, don’t you?”
+“Yeah,”
+Karuizawa muttered. 
+“I suffered for many years. I asked my teachers and classmates for help, but that only made it worse. There was no escape.” 
+Human nature included a strong tendency to fall into vicious cycles. Bullying was deeply rooted in the human psyche. 
+There was no simple solution to it. If a victim pushed back, that might only result in them being attacked more fiercely the next time.
+“No matter how often they beat me up, the school ignored the bullying, and wouldn’t do anything. They gave the bullies light warnings, at most.
+Of course, it got worse, you know?”
+Even if a school acknowledged bullying, they usually wanted to deal with it in secret, so as not to risk damaging their reputation. 
+There were schools that would stubbornly refuse to admit the truth even after a bullied student killed themselves, leaving behind a note. 
+Worse, death might bring no salvation. The bullied student might be insulted even after they died. 
+People could mock them, or share their story on social media for entertainment. What a terrifying era it was, when you could be bullied even after death.
+“The school, the people who bullied me, even myself… No one admitted the truth. My friends spouted the same lies. 
+That was the only way they could answer, no matter how unjust it was.” 
+Karuizawa spoke almost as if she were talking about someone else. In truth, this school had probably investigated her case thoroughly.
+Had theyconcluded that she was an airhead, didn’t take school seriously, and cut class? If everyone believed that to be true, then the real truth wouldn’t matter.
+It would be buried forever under all the lies.
+“But I’m grateful to the people who bullied me, and the school that covered it up,” Karuizawa added.
+“No one here knows about my past. That’s why I was able to become a new me. I couldn’t have done that if everyone here had heard of the bullying.” 
+She’d turned her situation around by obtaining the exceptionally popular Hirata’s support and protection. 
+“Karuizawa, I think you deserve praise, but I should tell you something first. From now on, you’re forbidden to do anything that supports bullying others.” 
+“Huh? Are you saying that I’m bullying someone?” 
+“It’s one thing to be headstrong, but you’ve been going after Sakura. She clearly isn’t the kind of girl who’d bully you. 
+Even if you’re doing it to prevent yourself from becoming a victim, stop.”
+Despite Karuizawa’s past suffering, there were things I couldn’t tolerate.
+“Sakura-san, huh? You want me to help her because she’s so attached to you?” 
+“Do I need a reason? You should understand how it feels to be bullied.” 
+“My social status is my lifeline. It’s not something I’m ready to just discard. I do feel sorry for Sakura-san, but the weak exist as prey for the strong.
+Especially those pretending to be strong, like me.” She was resolute.
+“I’m asking for Sakura’s sake. She’s helped me quite a few times, after all.” 
+“Hmph. You openly admit it,” Karuizawa huffed.
+There was no dissatisfaction or discontent in her eyes. Only wariness.
+“You’re not convincing, but…fine. I’ll be careful from now on. Okay?”
+“Being reasonable is helpful. Besides, Hirata’s already established your current popularity. You shouldn’t be in any danger.” 
+“I suppose you’re right. Maybe I’ve been overdoing it a little,” Karuizawa replied softly.
+“But, if my position does appear to be in danger, then—” 
+“When that happens, I’ll back you. If necessary, I’ll bring in Hirata and even Chabashira-sensei to eliminate your enemies. That’s a promise.” 
+“Hmm. Okay then. Deal.”
+Karuizawa never struck me as the sort of person who’d resort to violence or intimidation in the first place. 
+She could pretend all she liked, but she was just playing that part to protect herself.
+People who’d been bullied for years usually couldn’t socialize easily, but she overcame that trauma. 
+“I wonder why?” she muttered.
+“What?”
+“It’s just that I don’t really like bringing up my past. I thought I’d never tell anyone about it. But I ended up telling you, and it felt so surprisingly
+fine that it’s kind of odd, you know?” 
+Apparently even Karuizawa didn’t know why she’d told me about the bullying. I wasn’t sure of the reason, either.
+“Can I ask you something? Is the way you’re acting now the real you?” She sounded somewhat guarded.
+Karuizawa was the only person in our class who’d seen both my sides. I crossed my arms and racked my brain for how to respond. 
+“I’m always like this, I guess.” 
+“You’re completely different, though.” 
+Well, strictly speaking, this wasn’t really me. However, it wasn’t the same as faking a personality.
+“I want to ask you something. What would you say is the specific difference between me right now, and the usual me?” 
+“Usually, you’re this gloomy guy. You don’t talk at all. But now, you’re assertive. You’re being direct. Those traits are polar opposites.
+The way you talk is different, too. What’s your deal, anyway?” 
+“What do you mean? Don’t people simply act differently depending on who they’re with? Don’t you do the same thing?” 
+That was probably the best possible rebuttal, although it didn’t fit exactly. The truth was that it felt like I’d just been born as an individual. 
+When I enrolled in this school, I wasn’t fully formed. I was like liquid, or moldable clay. 
+Developing into a full person took time, and I had yet to completely understand how to interact, or the correct way to express myself.
+“Anyway, I plan on just being my usual self,” I said.
+“You don’t sound like anything like your usual self,” Karuizawa replied. 
+She narrowed her eyes and pursed her lips.
+“Let’s get back to the topic at hand. You can keep an eye on me from now on, and determine what kind of person I am.”
+“I kinda get the feeling you’re dodging the question. Well, all right. Let’s go back to talking about the school. What’s up with it?”
+“Tomorrow, four of us guys—me, Ike, Yamauchi, and Sudou—are planning to go out, along with Horikita, Sakura, and Kushida.” 
+“Talk about a bizarre combination. I can’t imagine Horikita-san and Sakura-san hanging out with those guys. 
+I guess they’re both friendly with you, but the other three are just going to end up ogling them, right? They have my sincerest condolences.”
+“I want you to join us,” I said.
+“Huh?! Are you serious?!” Karuizawa shouted.
+She had no connection to the group. If anything, there was tension between her and them. “
+You can put on your swimsuit at the dorm, wear your clothes over it, and come along. It’ll probably be unpleasant, but if you return to the dorm dressed the same way,
+everything should be fine,” I said.
+“No, no. That’s not the problem. I really, really don’t want to do this.”
+“I sympathize, but you basically can’t refuse, can you?” 
+“Wow. You’re the worst.” 
+“My decision’s final. You’ll do as instructed.” 
+I pushed a handwritten note toward her, adding,
+“I’ve shown you some consideration.”
+“What the hell? You’re using up my whole day, aren’t you? And it’s the last day of summer, too!”
+“You said you planned to spend the day sleeping, right?” I countered. 
+“I want you to join us at the pool. But I’m not telling you to participate.”
+Karuizawa read my note closely. 
+“Wait, what’s the difference between ‘join’ and ‘participate’?” she asked.
+I explained in detail why I’d called her. Karuizawa heard me out, then cradled her head in her hands. 
+“What’s the matter?” I asked her.
+“Got a headache?” 
+“Of course my head hurts! It hurts because you… No, forget it. It’s meaningless. Can’t you just ask Horikita-san? Aren’t you close?”
+“I can’t rely on her. She doesn’t know how I operate from the shadows.”
+“Huh? Why?” Karuizawa sounded incredulous. 
+Her disbelief was to be expected. The correct plan of action would be to evade her question and mislead her, but instead, I decided to take things a step further. 
+“This entire time, even back when I contacted you on the ship, I’ve acted entirely on my own. I haven’t spoken with Horikita about this, because I still can’t trust her.”
+That was all true; I spoke no lies.
+“What? You don’t trust her, even after all the time you’ve spent together? That’s weird.”
+“She makes an excellent cover for me, like a magic cloak of invisibility. She’s conspicuous,” I replied.
+“So, you’re just using her, then?”
+“Not exactly, but in this particular situation, I’d say that’s about it.” 
+“Hmm? I don’t get what you’re saying. Seriously, can you knock off the vagueness?” Karuizawa flashed me a smile, though.
+“Still, your schemes have been successful so far, huh? I really thought that Horikita-san was the mastermind. Seriously, who are you?” I didn’t respond. 
+“Well, whatever. I guess being more trustworthy than Horikita-san is a good thing,” she added. 
+That was right. Karuizawa was infinitely superior to Horikita in some ways, although I couldn’t explain that to her.
+“So, I just need to carry out your orders?” she asked. 
+“Yes. Now that that’s settled, would you come with me for a little while? We need to take care of something in advance.” 
+“Well, I don’t exactly have the right to refuse.” 
+Karuizawa stood and brushed dirt from her skirt, demonstrating just how quickly she wanted to end this. As for me, I didn’t want to waste any precious time, either.
+Together, we made our way toward the pool.
+```
+
+(#41change)
 
 
 
@@ -1833,7 +2010,7 @@ I quietly closed the door and was no longer able to hear Karuizawa’s screams.
 ```
 [:arrow_up:](#plot-b)
 
-##### 37change
+##### 38change
 Volume 4 Chapter 4 Part 7
 
 ```
@@ -2005,7 +2182,7 @@ But they never would have come to the conclusion that Karuizawa was the real VIP
 ```
 [:arrow_up:](#plot-b)
 
-##### 39change
+##### 40change
 Volume 4 Chapter 5 Part 3
 ```
 “I’d like to introduce you to someone else later. Hirata, too. Make sure to keep some time open before they announce the results,” I said.
@@ -2033,6 +2210,206 @@ In just five more minutes, an email should be sent to all the students.
 “It’s just about time. Is Horikita-san still not here? Shouldn’t we contact her?” asked Hirata.
 “She’s the type to come at the very last second. We have another four minutes,” I said. “Ah, looks like she’s here,” said Hirata.
 Apparently, Horikita had arrived earlier than I’d expected
+```
+
+[:arrow_up:](#plot-b)
+
+##### 41change
+Volume 4.5 Chapter 6
+
+```
+“It’s so hot today.”
+How many times had I said that this summer? Still, it really was hot, no way around it. Even if saying so out loud made you feel hotter, you couldn’t stop yourself.
+Just thinking the words didn’t help. Cicadas were probably the only creatures who preferred this sweltering heat. 
+Heat aside, I’d gotten caught up in yet another unusual incident. If the other guys knew about this situation, they probably wouldn’t be happy with me at all.
+It was a very nasty problem. Well, let’s start from the beginning. A tree-lined path a short distance from the dormitory led to the school. 
+If you went off that path, you’d find a rest area. That’s where I was. It was a popular spot to sit down and chat. 
+There were several benches and vending machines, the view was great, and many students frequented it in the early spring.
+The heat made this a rare off-season period for the rest area. It was completely deserted, which turned it into a perfect spot for a clandestine meeting. 
+“Sorry to have kept you waiting.”
+As I sat on the bench, Karuizawa Kei walked toward me. She shaded her eyes from the blinding sunlight with a hand and looked at the sky.
+“So hot,” she muttered.
+Apparently, we were of one mind on the subject. Karuizawa’s long ponytail bobbed as she sat down next to me. 
+She wore an unusually casual outfit: jeans and a simple shirt. Even so, the outfit looked coordinated and stylish.
+I supposed girls had to prioritize fashion no matter how hot it was, which had to be tough. 
+“I know you’re busy right now. Sorry for dragging you out like this,” I said.
+“Are you being sarcastic? I played around too much this summer. I don’t have any points to spend, so I’ve just been hanging out in my room.”
+“Do you have plans tomorrow?” I asked.
+“I can’t really do anything without money. I’ll probably be sleeping.” 
+It sounded like Karuizawa really was indulging herself this summer. 
+“You should get a lot of points next month, though. I mean, after the last test.” 
+During the exam on the cruise ship, Karuizawa—who’d been the VIP —had worked together with me. We managed to keep her identity secret until the test ended. 
+Because of that, Karuizawa would receive 500,000 points as a reward come September.
+“Yeah, I guess. I’ve picked out the clothes and accessories and stuff I want to get. But is it really okay to use all the points like that? Isn’t it better to save some?” 
+“You can hold yourself back?” I asked, teasing her a little.
+She puffed out her cheeks and glared at me. 
+“Well, it’s not that simple. When I have points, they seem to last less than a week,” she muttered. 
+Karuizawa mimed counting all the things she wanted on her fingers. She was out of fingers in no time. Just how many things did she plan to get anyway? 
+“But, like, even I know how important private points are. The school system’s really weird, right? You get, like, this ridiculously huge amount of points during special exams and stuff. Everyone else is wondering about that, too,” she observed.
+The regular student body was finally starting to suspect that something was up, apparently. I supposed that was natural. 
+If you suddenly received a large sum of money, you’d question the school’s motives. 
+You’d consider the possibility that private points weren’t just meant for use on one’s private desires. 
+“That’s true. Some students might get as many as 1,000,000 or 2,000,000 points,” I said. 
+“Yeah. Is it really okay to give high schoolers that much money? It’s definitely not normal.” 
+The points were sort of necessary for us to “survive” at school, which was probably why Karuizawa was unsure how best to use them. 
+For example, if you made a blunder that could result in your expulsion, you could make the problem go away with enough private points.
+Having a few million points on hand as insurance probably was a good idea.
+“There’s no reason to think about it too much. Looking too far ahead can drive you insane. If you retain ten to twenty percent of your monthly points, that should be enough,” I said. 
+You had to maintain a balance between your wants and needs. For Karuizawa, who’d always been a shopaholic, curbing her desires was hard. 
+Besides, if a former spendthrift suddenly became miserly, students in our class might get suspicious.
+I didn’t want anyone to connect her change in circumstances to me.
+“I want to ask you for a favor,” I said.
+“What, you’re not even going to apologize first for calling me out here on such a hot day?”
+“Want this?” 
+I handed her a bottle of tea I hadn’t drunk from yet. She hesitated, then reluctantly accepted it.
+“It’s a little warm,” she muttered. 
+“That’s the weather’s fault. Nothing I can do.”
+Some places nearby had recorded temperatures of forty degrees Celsius or higher. Just thinking the number made me feel hot.
+Karuizawa struggled to uncap her drink.
+“Hmph. Guess I got a loser.” 
+“A loser? You don’t usually get prizes in tea bottle caps.” 
+“That’s not funny, you know. I’m talking about how hard this is to open,” she grumbled. 
+Well, it had been a poor joke. I reached over, took the drink, twisted the cap, and returned it.
+“Thanks.” 
+After what’d happened on the boat, the distance between Karuizawa and I had diminished. 
+Before summer vacation, it would’ve been impossible for us to have this kind of conversation. She probably still didn’t trust me, but she showed no sign of that. 
+Karuizawa really understood self-control. To protect herself and her status, she could adapt to any environment. 
+“Tomorrow’s the last day of summer vacation. One of my friends invited me to make some fun summer memories.” 
+“What do you mean, summer memories? We don’t have fireworks or a festival or anything like that here, do we?” asked Karuizawa. 
+“The school has a big pool, right? It’s normally reserved for the swim club. Did you know that the restriction was lifted for today?”
+That pool was even bigger than the one we used during swim class. For the last three days of summer vacation, it was open for communal use. 
+When a huge crowd of students flooded the pool on the first day, the school put additional restrictions in place.
+Students could only use the pool once during those last three days. Apparently, the second day was really busy, too.
+“Ah. Now that you mention it, though, I’m not that interested in swimming,” muttered Karuizawa.
+She always skipped swim class by claiming she didn’t feel well. Even though it was difficult to cut class due to the point system, 
+the school couldn’t really question a student’s poor physical condition, especially not woman-specific problems. 
+There were girls other than Karuizawa who refused to participate, probably for a variety of reasons. 
+They might feel ill, not want other people to know they couldn’t swim well, or even hate swimming in the first place.
+Maybe they didn’t want to show that much skin around boys. And so on. However, Karuizawa’s circumstances were different. 
+A while ago, Karuizawa had been viciously bullied by her classmates. As a result, she had a terrible scar on her side. If someone saw it, it would definitely cause a stir.
+“Do you like swimming?” I asked her.
+“Hmm. Well, I don’t hate it, I guess. I haven’t gone swimming for years now, so I’ve probably forgotten how.” Karuizawa drank her tea and stared ahead as she replied.
+I could tell that wasn’t how she really felt. 
+“So, what, the guys want to make memories at the pool? You’re obviously just planning to be perverts.”
+I couldn’t deny that, actually. That was probably exactly their reasoning. 
+“So, what does this have to do with me?” asked Karuizawa.
+“Before I answer that, let me ask you one thing. Does the school really not know that you were bullied before?”
+“Huh?”
+Karuizawa looked puzzled for a moment, then turned to glare at me. Her polite façade was gone. I returned her stare.
+“You know I don’t want to talk about that, right?” she growled.
+“I’m not reopening old wounds for no reason. I’m asking because it’s relevant,” I replied.
+“But…” 
+This had to be a serious topic for Karuizawa. She seemed to come to a decision.
+“All right. I’m sure you must have a reason for this.” 
+She tried to swallow her anxieties. 
+“I definitely don’t think they know the truth about me being bullied. They might know about my leave of absence from school, or how many days off I took during junior high,
+but they probably think those were due to me being sick or skipping class, you know? Or they might just think I’m stupid. That’s probably why they put me in Class D.”
+Karuizawa sounded self-deprecating, but she was likely right. The school must’ve had a poor impression of her bad attendance record and low grades.
+“Even if the school investigates the matter, they probably won’t find any evidence of the bullying,” she added. 
+“You realize that the world is magnificently rotten, don’t you?”
+“Yeah,”
+Karuizawa muttered. 
+“I suffered for many years. I asked my teachers and classmates for help, but that only made it worse. There was no escape.” 
+Human nature included a strong tendency to fall into vicious cycles. Bullying was deeply rooted in the human psyche. 
+There was no simple solution to it. If a victim pushed back, that might only result in them being attacked more fiercely the next time.
+“No matter how often they beat me up, the school ignored the bullying, and wouldn’t do anything. They gave the bullies light warnings, at most.
+Of course, it got worse, you know?”
+Even if a school acknowledged bullying, they usually wanted to deal with it in secret, so as not to risk damaging their reputation. 
+There were schools that would stubbornly refuse to admit the truth even after a bullied student killed themselves, leaving behind a note. 
+Worse, death might bring no salvation. The bullied student might be insulted even after they died. 
+People could mock them, or share their story on social media for entertainment. What a terrifying era it was, when you could be bullied even after death.
+“The school, the people who bullied me, even myself… No one admitted the truth. My friends spouted the same lies. 
+That was the only way they could answer, no matter how unjust it was.” 
+Karuizawa spoke almost as if she were talking about someone else. In truth, this school had probably investigated her case thoroughly.
+Had theyconcluded that she was an airhead, didn’t take school seriously, and cut class? If everyone believed that to be true, then the real truth wouldn’t matter.
+It would be buried forever under all the lies.
+“But I’m grateful to the people who bullied me, and the school that covered it up,” Karuizawa added.
+“No one here knows about my past. That’s why I was able to become a new me. I couldn’t have done that if everyone here had heard of the bullying.” 
+She’d turned her situation around by obtaining the exceptionally popular Hirata’s support and protection. 
+“Karuizawa, I think you deserve praise, but I should tell you something first. From now on, you’re forbidden to do anything that supports bullying others.” 
+“Huh? Are you saying that I’m bullying someone?” 
+“It’s one thing to be headstrong, but you’ve been going after Sakura. She clearly isn’t the kind of girl who’d bully you. 
+Even if you’re doing it to prevent yourself from becoming a victim, stop.”
+Despite Karuizawa’s past suffering, there were things I couldn’t tolerate.
+“Sakura-san, huh? You want me to help her because she’s so attached to you?” 
+“Do I need a reason? You should understand how it feels to be bullied.” 
+“My social status is my lifeline. It’s not something I’m ready to just discard. I do feel sorry for Sakura-san, but the weak exist as prey for the strong.
+Especially those pretending to be strong, like me.” She was resolute.
+“I’m asking for Sakura’s sake. She’s helped me quite a few times, after all.” 
+“Hmph. You openly admit it,” Karuizawa huffed.
+There was no dissatisfaction or discontent in her eyes. Only wariness.
+“You’re not convincing, but…fine. I’ll be careful from now on. Okay?”
+“Being reasonable is helpful. Besides, Hirata’s already established your current popularity. You shouldn’t be in any danger.” 
+“I suppose you’re right. Maybe I’ve been overdoing it a little,” Karuizawa replied softly.
+“But, if my position does appear to be in danger, then—” 
+“When that happens, I’ll back you. If necessary, I’ll bring in Hirata and even Chabashira-sensei to eliminate your enemies. That’s a promise.” 
+“Hmm. Okay then. Deal.”
+Karuizawa never struck me as the sort of person who’d resort to violence or intimidation in the first place. 
+She could pretend all she liked, but she was just playing that part to protect herself.
+People who’d been bullied for years usually couldn’t socialize easily, but she overcame that trauma. 
+“I wonder why?” she muttered.
+“What?”
+“It’s just that I don’t really like bringing up my past. I thought I’d never tell anyone about it. But I ended up telling you, and it felt so surprisingly
+fine that it’s kind of odd, you know?” 
+Apparently even Karuizawa didn’t know why she’d told me about the bullying. I wasn’t sure of the reason, either.
+“Can I ask you something? Is the way you’re acting now the real you?” She sounded somewhat guarded.
+Karuizawa was the only person in our class who’d seen both my sides. I crossed my arms and racked my brain for how to respond. 
+“I’m always like this, I guess.” 
+“You’re completely different, though.” 
+Well, strictly speaking, this wasn’t really me. However, it wasn’t the same as faking a personality.
+“I want to ask you something. What would you say is the specific difference between me right now, and the usual me?” 
+“Usually, you’re this gloomy guy. You don’t talk at all. But now, you’re assertive. You’re being direct. Those traits are polar opposites.
+The way you talk is different, too. What’s your deal, anyway?” 
+“What do you mean? Don’t people simply act differently depending on who they’re with? Don’t you do the same thing?” 
+That was probably the best possible rebuttal, although it didn’t fit exactly. The truth was that it felt like I’d just been born as an individual. 
+When I enrolled in this school, I wasn’t fully formed. I was like liquid, or moldable clay. 
+Developing into a full person took time, and I had yet to completely understand how to interact, or the correct way to express myself.
+“Anyway, I plan on just being my usual self,” I said.
+“You don’t sound like anything like your usual self,” Karuizawa replied. 
+She narrowed her eyes and pursed her lips.
+“Let’s get back to the topic at hand. You can keep an eye on me from now on, and determine what kind of person I am.”
+“I kinda get the feeling you’re dodging the question. Well, all right. Let’s go back to talking about the school. What’s up with it?”
+“Tomorrow, four of us guys—me, Ike, Yamauchi, and Sudou—are planning to go out, along with Horikita, Sakura, and Kushida.” 
+“Talk about a bizarre combination. I can’t imagine Horikita-san and Sakura-san hanging out with those guys. 
+I guess they’re both friendly with you, but the other three are just going to end up ogling them, right? They have my sincerest condolences.”
+“I want you to join us,” I said.
+“Huh?! Are you serious?!” Karuizawa shouted.
+She had no connection to the group. If anything, there was tension between her and them. “
+You can put on your swimsuit at the dorm, wear your clothes over it, and come along. It’ll probably be unpleasant, but if you return to the dorm dressed the same way,
+everything should be fine,” I said.
+“No, no. That’s not the problem. I really, really don’t want to do this.”
+“I sympathize, but you basically can’t refuse, can you?” 
+“Wow. You’re the worst.” 
+“My decision’s final. You’ll do as instructed.” 
+I pushed a handwritten note toward her, adding,
+“I’ve shown you some consideration.”
+“What the hell? You’re using up my whole day, aren’t you? And it’s the last day of summer, too!”
+“You said you planned to spend the day sleeping, right?” I countered. 
+“I want you to join us at the pool. But I’m not telling you to participate.”
+Karuizawa read my note closely. 
+“Wait, what’s the difference between ‘join’ and ‘participate’?” she asked.
+I explained in detail why I’d called her. Karuizawa heard me out, then cradled her head in her hands. 
+“What’s the matter?” I asked her.
+“Got a headache?” 
+“Of course my head hurts! It hurts because you… No, forget it. It’s meaningless. Can’t you just ask Horikita-san? Aren’t you close?”
+“I can’t rely on her. She doesn’t know how I operate from the shadows.”
+“Huh? Why?” Karuizawa sounded incredulous. 
+Her disbelief was to be expected. The correct plan of action would be to evade her question and mislead her, but instead, I decided to take things a step further. 
+“This entire time, even back when I contacted you on the ship, I’ve acted entirely on my own. I haven’t spoken with Horikita about this, because I still can’t trust her.”
+That was all true; I spoke no lies.
+“What? You don’t trust her, even after all the time you’ve spent together? That’s weird.”
+“She makes an excellent cover for me, like a magic cloak of invisibility. She’s conspicuous,” I replied.
+“So, you’re just using her, then?”
+“Not exactly, but in this particular situation, I’d say that’s about it.” 
+“Hmm? I don’t get what you’re saying. Seriously, can you knock off the vagueness?” Karuizawa flashed me a smile, though.
+“Still, your schemes have been successful so far, huh? I really thought that Horikita-san was the mastermind. Seriously, who are you?” I didn’t respond. 
+“Well, whatever. I guess being more trustworthy than Horikita-san is a good thing,” she added. 
+That was right. Karuizawa was infinitely superior to Horikita in some ways, although I couldn’t explain that to her.
+“So, I just need to carry out your orders?” she asked. 
+“Yes. Now that that’s settled, would you come with me for a little while? We need to take care of something in advance.” 
+“Well, I don’t exactly have the right to refuse.” 
+Karuizawa stood and brushed dirt from her skirt, demonstrating just how quickly she wanted to end this. As for me, I didn’t want to waste any precious time, either.
+Together, we made our way toward the pool.
 ```
 
 [:arrow_up:](#plot-b)
