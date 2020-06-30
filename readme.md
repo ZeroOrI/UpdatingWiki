@@ -675,23 +675,23 @@ __Spoilers__
 
 ~~Kiyotaka thought that Kei's reactions were too extreme, so he asked Hirata and learned about that Kei had been bullied since elementary school. As he learned that Kei was a capable person who could cover up her past using a new persona up until now, he decided to make her his pawn who would secretly completely obey his orders. He anonymously testified to Manabe about their issue, then used Hirata's phone to lure Kei to the ship's basement near the engine room and let Manabe's group get revenge for their friend. After Manabe's group left, he approached Kei and told her that he would save her in exchange for her obeying all orders. Kei tried to put up a strong front, but lost all will to resist when Kiyotaka glared deeply into her eye. He secretly took a video of Manabe bullying Kei at the staircase, which he used to save Kei by blackmailing Manabe's group into not approaching Kei or saying anything about Kei. Finally forming a relationship with Kei, he firstly made her go along with his plan, making A-class wrongly guess the group traitor.~~
 
-**At 2:00 AM in the midnight, Karuizawa has contacted Hirata, she wanted to meet with him. The meeting is at a lounge area near the second floor. Karuizawa is surprised and angered that Kiyotaka is there, but Hirata tells her that he brings him along since he seems to understand the situation. Hirata then talks about Karuizawa's encounter with the Class C girls, with Kiyotaka confirming that he also saw it. Karuizawa has asked Hirata to take revenge on the girls, but Hirata refuses and wants to resolve things with them peacefully. Karuizawa insists that it's not possible, but Hirata replies that he can't just hurt someone else to help her. Karuizawa shouts that he's a liar since he said he would protect her. Hirata stands up and says that he's told her from the start, that they are not actually boyfriend and girlfriend and he won't fight a war for her.**
+**At 2:00 AM in the midnight, Karuizawa has contacted Hirata, she wanted to meet with him. The meeting is at a lounge area near the second floor. Karuizawa is surprised and angered that Kiyotaka is there, but Hirata tells her that he brings him along since he seems to understand the situation. Hirata then talks about Karuizawa's encounter with the Class C girls, with Kiyotaka confirming that he also saw it. Karuizawa had to push that girl from class 1-C to save her face in front of her friends. Hirata replies that entirely her fault. Karuizawa has asked Hirata to take revenge on the girls, but Hirata refuses and wants to resolve things with them peacefully. Karuizawa insists that it's not possible, but Hirata replies that he can't just hurt someone else to help her. Karuizawa shouts that he's a liar since he said he would protect her. Hirata stands up and says that he's told her from the start, that they are not actually boyfriend and girlfriend and he won't fight a war for her.**
 
 **Hirata tells her that he intends to speak with Manabe and her friends in the morning and will tell them that Karuizawa will apologise. Karuizawa still refuses and Hirata says he can't help her if that's the case. Hirata then asks Kiyotaka for ideas, but Karuizawa angrily declares that she doesn't need help and their relationship is over, before abandons them and leaves.**
 
-**Kiyotaka asks about Hirata's fake relationship with Karuizawa, pointing out that they've been dating for almost 4 months but their relationship hadn't progressed much. Kiyotaka notes that Karuizawa's popularity had soared after going out with Hirata, and he was playing the boyfriend role to help raising her status.**
+**Hirata and Karuizawa had fake relationship, they've been dating for almost 4 months but their relationship hadn't progressed much. Thanks to that Karuizawa's popularity had soared after going out with Hirata, and he was playing the boyfriend role to help raising her status.**
 
-**Kiyotaka thinks that there's still more to it, as Hirata had easily accepted her request and she couldn't simply just use Machida to increase her influence. He then comes to the conclusion that she wanted to protect herself.**
+**She just wanted to protect herself.**
 
-**Hirata then reveals that Karuizawa was viciously bullied in elementary and junior high years and that she was just desperately trying to act tough and not showing her real personality.**
+**Karuizawa was viciously bullied in elementary and junior high years and that she was just desperately trying to act tough and not showing her real personality.**
 
-**Kiyotaka says he can't save both Karuizawa and Manabe. Hirata understands that and says it's probably the reason why Kiyotaka is also there with him at the moment. Hirata asks Kiyotaka and Suzune to keep this story confidential. Kiyotaka then asks Hirata for a favour and hands him a piece of paper. Hirata accepts his request and tells Kiyotaka that he knows the identity of the last VIP student from Class D.** [35](#35change)
+**Kiyotaka then asks Hirata for a favour and hands him a piece of paper. Hirata accepts his request and tells Kiyotaka that he knows the identity of the last VIP student from Class D.** [35](#35change)
  
-**Kiyotaka then proceeds down to the lowest level on the ship, to an area prohibited from students but isn't locked, where generally no one appears and phones have almost no reception. After observing, Kiyotaka then returns to the upper deck and make a call to Hirata. He then receives a message from Hirata, saying he's promised to meet Karuizawa at 4:00 PM and sends Kiyotaka information about Manabe. Kiyotaka then starts messaging anonymously to Manabe. He tells her that he is a classmate who also hates Karuizawa and wants to work together to get a revenge on her. Manabe is initially suspicious but eventually follows and asks about the plan. Kiyotaka sends her the map of the ship's lowest level and says that he will call Karuizawa there so Manabe can settle things with her. Kiyotaka also has another plan prepared in case he failed to convince Manabe through chat, by blackmailing her with the pictures he took when she and her friends confronted Karuizawa at the emergency stairwell, but the risks were high and he wanted to avoid drawing attention as much as possible.**
+**Kiyotaka then proceeds down to the lowest level on the ship, to an area prohibited from students but isn't locked, where generally no one appears and phones have almost no reception. After observing, Kiyotaka then returns to the upper deck and make a call to Hirata. He then receives a message from Hirata, saying he's promised to meet Karuizawa at 4:00 PM and sends Kiyotaka information about Manabe. Kiyotaka then starts messaging anonymously to Manabe. He tells her that he is a classmate who also hates Karuizawa and wants to work together to get a revenge on her. Manabe is initially suspicious but eventually follows and asks about the plan. Kiyotaka sends her the map of the ship's lowest level and says that he will call Karuizawa there so Manabe can settle things with her. Kiyotaka also has another plan prepared in case he failed to convince Manabe through chat, by blackmailing her with the pictures he took when she and her friends confronted Karuizawa at the emergency stairwell, but the risks were high and he wanted to avoid drawing attention as much as possible.** [36](#36change)
 
-**Karuizawa arrives early at the meeting point where she is supposed to meet Hirata. At 4 o'clock, Manabe and her friends also comes to the place, including Rika. Karuizawa notices them and starts trembling. Manabe tells Karuizawa to meet Rika and apologise to her. Karuizawa still insists that she didn't do anything wrong, but Manabe threatens her and tells her that she knew about Karuizawa being bullied (Kiyotaka has told Manabe in the chat that Karuizawa was bullied since childhood). Karuizawa weakly denies and tries to escape, but Manabe grabs her hair and slams her to the wall. Manabe then starts beating Karuizawa up, even pressing Rika to join in, while Karuizawa keeps pleading them to stop and collapses in fear. Kiyotaka quietly leaves the scene and closes the door.**
+**Karuizawa arrives early at the meeting point where she is supposed to meet Hirata. At 4 o'clock, Manabe and her friends also comes to the place, including Rika. Karuizawa notices them and starts trembling. Manabe tells Karuizawa to meet Rika and apologise to her. Karuizawa still insists that she didn't do anything wrong, but Manabe threatens her and tells her that she knew about Karuizawa being bullied. She wasn't . Karuizawa weakly denies and tries to escape, but Manabe grabs her hair and slams her to the wall. Manabe then starts beating Karuizawa up, even pressing Rika to join in, while Karuizawa keeps pleading them to stop and collapses in fear. Kiyotaka quietly leaves the scene and closes the door.** [37](#37change)
 
-**After Manabe and her friends have left, Kiyotaka enters and calls Karuizawa, who is still cowering on the ground. As she didn't expected to be there, Karuizawa becomes panicked. After a while, Kiyotaka asks if she's calmed down. Karuizawa wipes her tears and asks about Hirata. Kiyotaka says he's there in his place, since a teacher called Hirata away and Kiyotaka just happened to be with him in that time. Karuizawa says that Manabe and her friends caused the scene and warns him not to tell anyone about it. She also suggests him to get back at them since they're girls. Kiyotaka refuses as it would only escalate the situation further. Karuizawa mutters that Manabe and her friends would continue doing awful things to her. Kiyotaka tells her he understands that she wants to prevent it, since it would be terrible if things went back like in the old days.**
+**After Manabe and her friends have left, Kiyotaka enters and calls Karuizawa, who is still cowering on the ground. As she didn't expected to be there, Karuizawa becomes panicked. After a while, Kiyotaka asks if she's calmed down. Karuizawa wipes her tears and asks about Hirata. Kiyotaka says he's there in his place, since a teacher called Hirata away and Kiyotaka just happened to be with him in that time. Karuizawa says that Manabe and her friends caused the scene and warns him not to tell anyone about it. She also suggests him to get back at them since they're girls. Kiyotaka refuses as it would only escalate the situation further. Karuizawa mutters that Manabe and her friends would continue doing awful things to her. Kiyotaka tells her he understands that she wants to prevent it, since it would be terrible if things went back like in the old days.** 
 
 **Karuizawa asks what he is talking about. Kiyotaka pins her against the wall and mentions how Manabe and her friends beat her up and the fact that she was a victim of bullying. Karuizawa asks if he heard it from Hirata, and Kiyotaka replies that he isn't of any use to her in a situation like this.**
 
@@ -699,7 +699,9 @@ __Spoilers__
 
 **Karuizawa vents her anger and mentions it's not the first time she's succumbed to forces. She gives a thin smile and stares at Kiyotaka, saying she couldn't do anything else and could only take all the bullying. As she lifts her skirt, Kiyotaka grabs her wrists and asks what happened to her. Karuizawa tells him about her punishments that happened countless times, with any kind of bullying one can imagine. Kiyotaka thinks she is still hiding something and presses on. Noticing her gaze at her left waist, he grabs her uniform and pulls it up, which reveals a deep scar caused by a sharp blade.**
 
-**Kiyotaka sees the darkness in her eyes that overlaps with his and decides that he needs to release her from the shackles of her past. He promises to protect her from bullying from now on, claiming he is much more reliable than Hirata or Machida. He then shows her his phone that has a photo of her being assaulted by Manabe and her group, saying he can stop them with it. He wants her to cooperate and assist him in the future, doing whatever he needs. As Class D lacks unity, if she can control the girls, the situation will improve and they can be able to overtake Class A. He then tells her they first need to guide their group to victory in this exam. As Karuizawa wonders how, Kiyotaka says that she can help since she is the VIP student.** [36](#36change)
+**Kiyotaka sees the darkness in her eyes that overlaps with his and decides that he needs to release her from the shackles of her past. He promises to protect her from bullying from now on, claiming he is much more reliable than Hirata or Machida. He then shows her his phone that has a photo of her being assaulted by Manabe and her group, saying he can stop them with it. He wants her to cooperate and assist him in the future, doing whatever he needs. As Class D lacks unity, if she can control the girls, the situation will improve and they can be able to overtake Class A. He then tells her they first need to guide their group to victory in this exam. As Karuizawa wonders how, Kiyotaka says that she can help since she is the VIP student.** 
+
+
 
 
 [Return to content](#content)
@@ -1505,6 +1507,8 @@ I stood alone in the emergency stairwell and thought about Karuizawa. The leader
 However, the threats hadn’t frightened her; she’d been terrified for another reason.
 ```
 ##### 35change
+Volume 4 Chapter 4 Part 4
+
 ```
 It was around two in the morning when my roommate quietly woke up. 
 Taking extreme consideration as to not wake the other three people in the room, Hirata slipped out of bed. 
@@ -1664,6 +1668,154 @@ So Karuizawa’s personality was a façade. A front. That’s why she needed peo
 “Wait a minute. What was in it for you?” I asked. High school is one of the prime romantic times of a student’s life. Hirata was popular with girls. If he pretended to go out with Karuizawa, he couldn’t pursue a relationship with anyone else. “What was in it for me? Karuizawa-san wasn’t being bullied. That’s all I needed.”
 ...
 “Hirata. Since you have a large social network, I have a favor to ask.” I handed Hirata a piece of paper. He read it and accepted my request without so much as a displeased look. “Oh, Ayanokouji-kun. There is one more thing I’ve been hiding from you. I know the identity of the last VIP from Class D.”
+```
+[:arrow_up:](#plot-b)
+
+##### 36change
+Volume 4 Chapter 4 Part 5
+
+```
+All I had to do was make sure everything happened in the proper order. First, I would contact Hirata, and then he would call Karuizawa. 
+Since I wanted to postpone things a little bit, I’d probably need to have him call Karuizawa an hour or so earlier.
+I returned to the upper decks to make the call. After our conversation last night, I thought Hirata might be especially on his guard.
+But I knew if Hirata called Karuizawa and said he wanted to speak with her alone, she’d respond.
+Karuizawa had said she was breaking up with Hirata, but she’d be the one to suffer if that happened. 
+With Manabe and her friends on the attack, Karuizawa absolutely needed Hirata to protect her at school. 
+I got a message from Hirata. 
+I’ve promised to meet Karuizawa-san at 4:00 p.m. I’ll send you Manabe-san’s info.
+As expected, Hirata had fulfilled his role admirably. As a bonus, he even had Manabe’s contact information, never mind that she was from another class.
+If he hadn’t known it, I would’ve had to risk asking Kushida. That saved me an extraordinary amount of trouble. 
+He sent me another message.
+I have to tell you, I don’t want to make Karuizawa-san sad. 
+“You don’t want to make her sad, huh?” 
+If he knew what I was about to do, Hirata would’ve been furious. But that wasn’t my problem.
+Even if she were to break here, I’d be fine so long as he didn’t find out. 
+This is a rather extreme example, but even if you committed murder, you couldn’t be convicted without proof. 
+I quickly typed a message and hit send.
+Hey, you got a minute? 
+The message was short and sweet, completely harmless.
+As a rule, chat apps are one account per phone. However, there was a way around that. 
+By creating another primary SNS account, your device could hold another. Of course, not many students split their account into a main and a sub.
+The benefits of switching between accounts were marginal at best. However, by creating a new account, I was able to contact a third party without revealing my identity.
+I needed to proceed delicately. If I didn’t mess up, everything should be fine.
+Despite the fact that Manabe had received an anonymous message, she immediately responded.
+Who is this? Only natural she’d ask that question.
+Is there anyone with you right now?
+I’m alone, but who are you? 
+Don’t show this to anyone. For your own sake.
+Look, who are you? 
+Let’s just say that I hate the same person you do.
+Although I saw that she’d read my message, Manabe took some time to respond.
+Do you have the wrong number?
+This isn’t a mistake, Manabe-san. I want to talk about Karuizawasan, the person you hate. I thought I might be able to talk to you about it. 
+I don’t know what you’re talking about. Please stop sending me messages. 
+She seemed wary, as if she imagined I might be an enemy. That was natural. First, I needed to win her trust. 
+I’m a classmate of hers, and it’s been difficult dealing with her for a long time now. I want to get revenge on her, so I thought we could work together. Since I’m in Class D with her, I can’t go after Karuizawa-san directly. That’s why I want your help. 
+I don’t know what you’re talking about. I’m going to ignore you. 
+Even though she was suspicious, she still hadn’t cut off contact. That proved how much Karuizawa made her blood boil. 
+That was why she wanted revenge on behalf of her friend, Rika. From the way Manabe had dragged Karuizawa into the emergency stairwell, her hatred was clear.
+Rika-chan is still scared of Karuizawa-san, even now. Don’t you want to help her? Your desire for revenge is written all over your face. But you couldn’t do it even if you wanted to, right? Karuizawa-san is really cautious after what happened yesterday. I’m sure she won’t leave Hirata-kun’s or Machida-kun’s side for a while. And she’ll always be with other girls, so she won’t be alone.
+I don’t need your help. I just need Karuizawa-san to talk to Rika. Then we’ll know the truth.
+I wonder if it’ll be that simple, though? I can’t imagine she’ll admit that she lied. 
+On the contrary, it would probably just hurt Rika-chan if Karuizawa-san says something awful.
+Oh, and that’s not all. If Karuizawasan’s holding a grudge, she might bully Rika further. 
+What should I do? Are you saying there’s a way? Manabe’s intense desire to settle things was evident.
+If you and I work together, we can safely get our revenge.
+What guarantee do I have? It feels like you’re trying to lure me into a trap, and then you’ll tattle to the school. This smells like a sub account.
+If you think I’m trying to sell you out, Manabe-san, then go ahead and show this chat log to the teachers. You can only register accounts on school phones. I’m risking being identified by saying I want revenge on Karuizawa-san. I’m the one risking my neck here. Am I wrong?
+I’m sure Manabe understood. Even a sub account wasn’t perfectly safe. If I were exposed, I would obviously receive the harshest punishment. 
+So if I show this chat log to the school, what then? It’ll be all over for you. 
+I don’t think you’re the kind of person to do that, Manabe-san. You have to show trust to be trusted. 
+I understand. I’ll hear you out, at least. 
+After that, I repeated some familiar-sounding stories. Stuff about how much I hated Karuizawa. How I wanted to do something about it but couldn’t.
+How I’d heard about Manabe’s confrontation with Karuizawa by chance, and that I’d tried to make contact. I played the victim thoroughly.
+Once we returned to land, it would be difficult for me to contact Karuizawa directly. The school buildings and dorms were equipped with security cameras. Even if you tried to bring her into a private area, it was still highly likely that someone would spot you. This ship gave Manabe the perfect opportunity. 
+I made her understand that revenge was only possible while they were here. I slowly but surely roused her anger. 
+So, what should I do? 
+Now that Manabe understood, I finally started to reveal my plan.
+I’ll call Karuizawa-san. Then, you take your time talking with her, and settle things. 
+After I sent that message, I followed it up by sending a map of the ship’s lowest level.
+Since you can’t get any reception down there, she can’t call for help. No one comes down there.
+I see, I see. So since you’re her classmate, you can call Karuizawasan? 
+I’d like you to tell me right now if you’re going along with my plan. After I call Karuizawa-san, you can decide whether you’ll take your revenge. There won’t be any problems that way, right? 
+She took a long time to respond, the longest for any response thus far. Finally, I saw her response, and was sure that my plan would succeed. 
+If my attempts to convince her via chat had failed, I had another plan prepared, just in case. 
+It would have been dangerous, but I would’ve made direct contact with Manabe in person. I had taken pictures when she was threatening Karuizawa in the emergency stairwell; 
+I could’ve blackmailed her with those. However, the risks were great. I wanted to avoid drawing attention to myself as much as humanly possible. 
+“Now. Let’s see what Manabe and her friends are capable of.”
+```
+
+[:arrow_up:](#plot-b)
+
+##### 37change
+Volume 4 Chapter 4 Part 6
+
+```
+“What’s going on? I can’t connect to… There’s no signal.” 
+There were still over ten minutes left before her arranged meeting with Hirata. Maybe she’d arrived a little early to calm herself down.
+After she realized that she couldn’t use her phone, she put it back in her pocket and leaned against the wall, apparently bored. 
+She closed her eyes and opened her mouth slightly, muttering something to herself. With how quietly she was muttering, I couldn’t hear her at all.
+What was she talking about? Unfortunately, Hirata wasn’t going to hear it. Once four o’clock rolled around, the door opened.
+I heard the dull sound of it. Three girls from Class C stepped through—Manabe and her friends. Wait… there was one other person with them. 
+She seemed meek, rather like Sakura. This was probably Rika. 
+“It’s all right,” said Manabe.
+Then she saw Karuizawa. Naturally, Karuizawa noticed them, too.
+“Wh-what are you doing here?!” she asked, trembling. 
+The passageways inside the ship were narrow, so there weren’t many escape routes. Running away would be difficult. 
+“I just happened to see you come in here, that’s all. Well, I suppose this is the perfect opportunity. Let me introduce you. This is Rika. Do you remember her, Karuizawa-san?” asked Manabe.
+Manabe grabbed Rika, who was hiding behind her, and pulled her forward. She and Karuizawa were now facing each other.
+Karuizawa averted her eyes, pretending like she didn’t know her, but judging from her behavior it was obvious she remembered.
+“Hey, Rika. Karuizawa-san was the one who shoved you, right?” asked Manabe. 
+“Yeah, she’s the one,” said Rika.
+After hearing such a clear answer, Manabe smiled, looking happy as could be. Karuizawa, on the other hand, appeared increasingly anxious and confused.
+All I could do now was stay quiet and observe the miserable events that were about to unfold.
+Even if Karuizawa were subjected to an even more wretched ordeal than I could imagine, I had no intention of saving her. 
+“Apologize to Rika,” demanded Manabe. 
+“H-huh? Who’s apologizing? I haven’t done anything wrong,” said Karuizawa.
+“Still acting tough. You’re a real piece of work, aren’t you? But I think I understand now, more or less,” snapped Manabe. 
+“Understand what?” asked Karuizawa.
+“Your behavior. You’re unusually fearful. Karuizawa-san, you were bullied, weren’t you?”
+“Wha—?!” 
+She had been trying to hide the truth, but her past had caught up with her. 
+“I hit the nail on the head, didn’t I? I knew it. I could feel it right from the start,” Manabe continued.
+“No, you’re wrong!” 
+Karuizawa denied it, but her words were weak. Even if she’d been an excellent actress, there wasn’t any point. 
+It wasn’t as though Manabe was highly perceptive or anything. She knew because I’d told her everything beforehand.
+I’d told her that Karuizawa had been cruelly bullied ever since childhood. That she harbored deep trauma.
+“If you get down on your knees and beg right now, I might forgive you. How about it? I mean, you’re good at groveling, right? Being on your knees?” Manabe mocked Karuizawa. 
+“N-no, I won’t! I’ve never done that kind of thing before!” Karuizawa shouted. 
+Karuizawa tried to slip past Manabe, but Manabe snatched her long hair and pulled her back, slamming her into the wall. 
+Manabe was assured that the stage had been set for her revenge, so I couldn’t control her here.
+I’d only promised that she would “meet” with Karuizawa, after all. She should have agonized over whether to use violence.
+However, when she finally had the chance to be alone with Karuizawa, she let go of all other concerns. 
+Because her friends were expecting her to get back at Karuizawa, I couldn’t imagine that this would end until Manabe had dished out a great deal of punishment. 
+...
+“Agh!” Karuizawa shouted.
+“Whoa, Shiho. Don’t you think you’re hitting her a little too much? Wow, you’re harsh.”
+Manabe continued to drive her knee into Karuizawa’s stomach. Of course, Manabe wasn’t used to hitting someone like that, so her movements were sluggish.
+It shouldn’t have hurt much. But Karuizawa’s pain was Manabe’s greatest reward. Seemingly in a great mood, she invited Rika to join in.
+Rika had been standing some distance away, watching anxiously.
+“Come on Rika. You give it a try, too,” urged Manabe.
+“N-no. I’m okay,” answered Rika. 
+“We’re doing this for your sake, right? Come on, there’s no one around,” replied Manabe.
+Rika wanted to refuse taking revenge, but that wasn’t allowed right now. If your friend coaxed and cajoled you to join in the fun, it’d be difficult to keep refusing. 
+Rika knew that if Manabe’s anger were redirected at her, she could become the next victim. 
+“O-okay. I’ll try.” 
+There was the sound of a pathetically light slap. Pap. 
+“L-Like that?” asked Rika.
+“No, no, that’s no good at all. You need to put more force into it, like this.”
+Whap! The sound echoed through the room. Karuizawa looked like she was in pain after that hit. 
+Rika slapped Karuizawa again and again, just as she was instructed. Her slaps gradually grew more forceful.
+“S-s-s-stop it!” pleaded Karuizawa.
+“Ha ha. This is fun! Ha ha!” Well, maybe it was more appropriate to think of Rika as the subject of the Milgram experiment.
+“Please, forgive me!” Karuizawa pleaded. 
+Seeing her like that must have felt euphoric for Manabe and the others. 
+Rika started to punch and kick rather strongly, to the point where I couldn’t believe she’d ever been scared.
+Also, even though she left some marks on easy-to-spot places like Karuizawa’s cheeks, Rika focused on hitting places you wouldn’t be able to see normally, like under her uniform or beneath her hair.
+Karuizawa collapsed in fear, tears streaming down her face. I moved without making a sound.
+I quietly opened the door, taking care that Manabe and her friends wouldn’t see. They would all continue to take out their frustrations on Karuizawa a little longer.
+I didn’t particularly mind. After all, if something has been thoroughly destroyed, it saves me time and effort when I need to build it back up. 
+I quietly closed the door and was no longer able to hear Karuizawa’s screams.
 ```
 [:arrow_up:](#plot-b)
 
