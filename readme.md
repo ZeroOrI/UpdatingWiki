@@ -1,3 +1,25 @@
+# Guide to Wiki Update
+* Crossed text
+  * This text from original wiki page, that was removed
+  
+~~Original text from wiki page~~ 
+
+* Link
+  * Link is used for:
+    * proofs
+    * to return back
+    
+[Link](#content)
+
+* Bold text
+
+**Updated text**
+
+* :arrow_up:
+  * This is also links that returns you to previous text
+  
+[:arrow_up:](#content)
+
 # Kei Karuizawa
 ![Kei_Kuruizawa](https://vignette.wikia.nocookie.net/youkoso-jitsuryoku-shijou-shugi-no-kyoushitsu-e/images/9/99/Kei_Karuizawa_LN_2nd_Year_Arc_visual.png/revision/latest?cb=20191125124817)
 ## Content
