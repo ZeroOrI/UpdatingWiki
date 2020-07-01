@@ -705,145 +705,27 @@ __Spoilers__
 
 **Kiyotaka and Karuizawa meet at the cafe. Karuizawa was worried about the result of exam, but Kiyotaka reassured her.Soon after Hirata came, because of their last talk there was awkward silence between them. In just five more minutes before appointed time they are also soon joined by Hirata and Suzune. Previously Kiyotaka's said to Horikita that he will introduce her another piece for reaching class A, it this piece is Kei. After everyone gathered they started discussion about exam results.** [40](#40change)
 
-**At the end of summer vacation Kiyotaka called Kei to rest area. This spot became desserted due to heat, so nobody was there and could see them two them together. Ayanokoji apologized for this sudden call, but Kei replied that she still didn't do anything and was just hanging out in her room. It was because that she's already spent all her points, so when Kiyo asked about her plans for tommorow she answer that she was going to sleep. Kiyotake reminded that she will get 500.000 points in next month and teased her because she is a shopaholic and can't keep points.  When topic of dialogue came to points Karuizawa expressed her concerns about is it normal for students to have so much money.
-```
-“You should get a lot of points next month, though. I mean, after the last test.” 
-During the exam on the cruise ship, Karuizawa—who’d been the VIP —had worked together with me. We managed to keep her identity secret until the test ended. 
-Because of that, Karuizawa would receive 500,000 points as a reward come September.
-“Yeah, I guess. I’ve picked out the clothes and accessories and stuff I want to get. But is it really okay to use all the points like that? Isn’t it better to save some?” 
-“You can hold yourself back?” I asked, teasing her a little.
-She puffed out her cheeks and glared at me. 
-“Well, it’s not that simple. When I have points, they seem to last less than a week,” she muttered. 
-Karuizawa mimed counting all the things she wanted on her fingers. She was out of fingers in no time. Just how many things did she plan to get anyway? 
-“But, like, even I know how important private points are. The school system’s really weird, right? You get, like, this ridiculously huge amount of points during special exams and stuff. Everyone else is wondering about that, too,” she observed.
-The regular student body was finally starting to suspect that something was up, apparently. I supposed that was natural. 
-If you suddenly received a large sum of money, you’d question the school’s motives. 
-You’d consider the possibility that private points weren’t just meant for use on one’s private desires. 
-“That’s true. Some students might get as many as 1,000,000 or 2,000,000 points,” I said. 
-“Yeah. Is it really okay to give high schoolers that much money? It’s definitely not normal.” 
-The points were sort of necessary for us to “survive” at school, which was probably why Karuizawa was unsure how best to use them. 
-For example, if you made a blunder that could result in your expulsion, you could make the problem go away with enough private points.
-Having a few million points on hand as insurance probably was a good idea.
-“There’s no reason to think about it too much. Looking too far ahead can drive you insane. If you retain ten to twenty percent of your monthly points, that should be enough,” I said. 
-You had to maintain a balance between your wants and needs. For Karuizawa, who’d always been a shopaholic, curbing her desires was hard. 
-Besides, if a former spendthrift suddenly became miserly, students in our class might get suspicious.
-I didn’t want anyone to connect her change in circumstances to me.
-“I want to ask you for a favor,” I said.
-“What, you’re not even going to apologize first for calling me out here on such a hot day?”
-“Want this?” 
-I handed her a bottle of tea I hadn’t drunk from yet. She hesitated, then reluctantly accepted it.
-“It’s a little warm,” she muttered. 
-“That’s the weather’s fault. Nothing I can do.”
-Some places nearby had recorded temperatures of forty degrees Celsius or higher. Just thinking the number made me feel hot.
-Karuizawa struggled to uncap her drink.
-“Hmph. Guess I got a loser.” 
-“A loser? You don’t usually get prizes in tea bottle caps.” 
-“That’s not funny, you know. I’m talking about how hard this is to open,” she grumbled. 
-Well, it had been a poor joke. I reached over, took the drink, twisted the cap, and returned it.
-“Thanks.” 
-After what’d happened on the boat, the distance between Karuizawa and I had diminished. 
-Before summer vacation, it would’ve been impossible for us to have this kind of conversation. She probably still didn’t trust me, but she showed no sign of that. 
+**At the end of summer vacation Kiyotaka called Kei to rest area. This spot became desserted due to heat, so nobody was there and could see them two them together. Ayanokoji apologized for this sudden call, but Kei replied that she still didn't do anything and was just hanging out in her room. It was because that she's already spent all her points, so when Kiyo asked about her plans for tommorow she answer that she was going to sleep. Kiyotake reminded that she will get 500.000 points in next month and teased her because she is a shopaholic and can't keep points.  When topic of dialogue came to points Karuizawa expressed her concerns about is it normal for students to have so much money. But he reassured and said that that she don't have to worry about it, she just needs to maintain balance between wants and needs. If she suddenly changed from spendthrift to miserly, students might get suspicious. 
+
+**Before Ayanokoji could tell her why he called her, Kei asked for apologizing for calling out there on such hot day. He offered her bottle of tea. She hesitated, then reluctantly accepted it. Karuizawa struggled to uncap her drink. After poor joke Kiyotaka he helped her.
+
+**Before summer vacation, it would’ve been impossible for them to have this kind of conversations. She probably still didn’t trust Kiyotaka, but she showed no sign of that. 
 Karuizawa really understood self-control. To protect herself and her status, she could adapt to any environment. 
-“Tomorrow’s the last day of summer vacation. One of my friends invited me to make some fun summer memories.” 
-“What do you mean, summer memories? We don’t have fireworks or a festival or anything like that here, do we?” asked Karuizawa. 
-“The school has a big pool, right? It’s normally reserved for the swim club. Did you know that the restriction was lifted for today?”
-That pool was even bigger than the one we used during swim class. For the last three days of summer vacation, it was open for communal use. 
-When a huge crowd of students flooded the pool on the first day, the school put additional restrictions in place.
-Students could only use the pool once during those last three days. Apparently, the second day was really busy, too.
-“Ah. Now that you mention it, though, I’m not that interested in swimming,” muttered Karuizawa.
-She always skipped swim class by claiming she didn’t feel well. Even though it was difficult to cut class due to the point system, 
-the school couldn’t really question a student’s poor physical condition, especially not woman-specific problems. 
-There were girls other than Karuizawa who refused to participate, probably for a variety of reasons. 
-They might feel ill, not want other people to know they couldn’t swim well, or even hate swimming in the first place.
-Maybe they didn’t want to show that much skin around boys. And so on. However, Karuizawa’s circumstances were different. 
-A while ago, Karuizawa had been viciously bullied by her classmates. As a result, she had a terrible scar on her side. If someone saw it, it would definitely cause a stir.
-“Do you like swimming?” I asked her.
-“Hmm. Well, I don’t hate it, I guess. I haven’t gone swimming for years now, so I’ve probably forgotten how.” Karuizawa drank her tea and stared ahead as she replied.
-I could tell that wasn’t how she really felt. 
-“So, what, the guys want to make memories at the pool? You’re obviously just planning to be perverts.”
-I couldn’t deny that, actually. That was probably exactly their reasoning. 
-“So, what does this have to do with me?” asked Karuizawa.
-“Before I answer that, let me ask you one thing. Does the school really not know that you were bullied before?”
-“Huh?”
-Karuizawa looked puzzled for a moment, then turned to glare at me. Her polite façade was gone. I returned her stare.
-“You know I don’t want to talk about that, right?” she growled.
-“I’m not reopening old wounds for no reason. I’m asking because it’s relevant,” I replied.
-“But…” 
-This had to be a serious topic for Karuizawa. She seemed to come to a decision.
-“All right. I’m sure you must have a reason for this.” 
-She tried to swallow her anxieties. 
-“I definitely don’t think they know the truth about me being bullied. They might know about my leave of absence from school, or how many days off I took during junior high,
-but they probably think those were due to me being sick or skipping class, you know? Or they might just think I’m stupid. That’s probably why they put me in Class D.”
-Karuizawa sounded self-deprecating, but she was likely right. The school must’ve had a poor impression of her bad attendance record and low grades.
-“Even if the school investigates the matter, they probably won’t find any evidence of the bullying,” she added. 
-“You realize that the world is magnificently rotten, don’t you?”
-“Yeah,”
-Karuizawa muttered. 
-“I suffered for many years. I asked my teachers and classmates for help, but that only made it worse. There was no escape.” 
-Human nature included a strong tendency to fall into vicious cycles. Bullying was deeply rooted in the human psyche. 
-There was no simple solution to it. If a victim pushed back, that might only result in them being attacked more fiercely the next time.
-“No matter how often they beat me up, the school ignored the bullying, and wouldn’t do anything. They gave the bullies light warnings, at most.
-Of course, it got worse, you know?”
-Even if a school acknowledged bullying, they usually wanted to deal with it in secret, so as not to risk damaging their reputation. 
-There were schools that would stubbornly refuse to admit the truth even after a bullied student killed themselves, leaving behind a note. 
-Worse, death might bring no salvation. The bullied student might be insulted even after they died. 
-People could mock them, or share their story on social media for entertainment. What a terrifying era it was, when you could be bullied even after death.
-“The school, the people who bullied me, even myself… No one admitted the truth. My friends spouted the same lies. 
-That was the only way they could answer, no matter how unjust it was.” 
-Karuizawa spoke almost as if she were talking about someone else. In truth, this school had probably investigated her case thoroughly.
-Had theyconcluded that she was an airhead, didn’t take school seriously, and cut class? If everyone believed that to be true, then the real truth wouldn’t matter.
-It would be buried forever under all the lies.
-“But I’m grateful to the people who bullied me, and the school that covered it up,” Karuizawa added.
-“No one here knows about my past. That’s why I was able to become a new me. I couldn’t have done that if everyone here had heard of the bullying.” 
-She’d turned her situation around by obtaining the exceptionally popular Hirata’s support and protection. 
-“Karuizawa, I think you deserve praise, but I should tell you something first. From now on, you’re forbidden to do anything that supports bullying others.” 
-“Huh? Are you saying that I’m bullying someone?” 
-“It’s one thing to be headstrong, but you’ve been going after Sakura. She clearly isn’t the kind of girl who’d bully you. 
-Even if you’re doing it to prevent yourself from becoming a victim, stop.”
-Despite Karuizawa’s past suffering, there were things I couldn’t tolerate.
-“Sakura-san, huh? You want me to help her because she’s so attached to you?” 
-“Do I need a reason? You should understand how it feels to be bullied.” 
-“My social status is my lifeline. It’s not something I’m ready to just discard. I do feel sorry for Sakura-san, but the weak exist as prey for the strong.
-Especially those pretending to be strong, like me.” She was resolute.
-“I’m asking for Sakura’s sake. She’s helped me quite a few times, after all.” 
-“Hmph. You openly admit it,” Karuizawa huffed.
-There was no dissatisfaction or discontent in her eyes. Only wariness.
-“You’re not convincing, but…fine. I’ll be careful from now on. Okay?”
-“Being reasonable is helpful. Besides, Hirata’s already established your current popularity. You shouldn’t be in any danger.” 
-“I suppose you’re right. Maybe I’ve been overdoing it a little,” Karuizawa replied softly.
-“But, if my position does appear to be in danger, then—” 
-“When that happens, I’ll back you. If necessary, I’ll bring in Hirata and even Chabashira-sensei to eliminate your enemies. That’s a promise.” 
-“Hmm. Okay then. Deal.”
-Karuizawa never struck me as the sort of person who’d resort to violence or intimidation in the first place. 
-She could pretend all she liked, but she was just playing that part to protect herself.
-People who’d been bullied for years usually couldn’t socialize easily, but she overcame that trauma. 
-“I wonder why?” she muttered.
-“What?”
-“It’s just that I don’t really like bringing up my past. I thought I’d never tell anyone about it. But I ended up telling you, and it felt so surprisingly
-fine that it’s kind of odd, you know?” 
-Apparently even Karuizawa didn’t know why she’d told me about the bullying. I wasn’t sure of the reason, either.
-“Can I ask you something? Is the way you’re acting now the real you?” She sounded somewhat guarded.
-Karuizawa was the only person in our class who’d seen both my sides. I crossed my arms and racked my brain for how to respond. 
-“I’m always like this, I guess.” 
-“You’re completely different, though.” 
-Well, strictly speaking, this wasn’t really me. However, it wasn’t the same as faking a personality.
-“I want to ask you something. What would you say is the specific difference between me right now, and the usual me?” 
-“Usually, you’re this gloomy guy. You don’t talk at all. But now, you’re assertive. You’re being direct. Those traits are polar opposites.
-The way you talk is different, too. What’s your deal, anyway?” 
-“What do you mean? Don’t people simply act differently depending on who they’re with? Don’t you do the same thing?” 
-That was probably the best possible rebuttal, although it didn’t fit exactly. The truth was that it felt like I’d just been born as an individual. 
-When I enrolled in this school, I wasn’t fully formed. I was like liquid, or moldable clay. 
-Developing into a full person took time, and I had yet to completely understand how to interact, or the correct way to express myself.
-“Anyway, I plan on just being my usual self,” I said.
-“You don’t sound like anything like your usual self,” Karuizawa replied. 
-She narrowed her eyes and pursed her lips.
-“Let’s get back to the topic at hand. You can keep an eye on me from now on, and determine what kind of person I am.”
-“I kinda get the feeling you’re dodging the question. Well, all right. Let’s go back to talking about the school. What’s up with it?”
-“Tomorrow, four of us guys—me, Ike, Yamauchi, and Sudou—are planning to go out, along with Horikita, Sakura, and Kushida.” 
-“Talk about a bizarre combination. I can’t imagine Horikita-san and Sakura-san hanging out with those guys. 
-I guess they’re both friendly with you, but the other three are just going to end up ogling them, right? They have my sincerest condolences.”
-“I want you to join us,” I said.
-“Huh?! Are you serious?!” Karuizawa shouted.
+
+**After this Kiyotaka went to main topic of this meeting. At the last day of summer vacation he and his friends wanted to make some fun summer memories by going to pool. It’s normally reserved for the swim club. Before school started again restriction was lifted and pool was open for communal use. Karuizawa mentioned that she wasn't interested in swimming. Even at school when they had swim class she always skipped them by claiming she didn't feel well. Its not like she hated it but due to her circumstances she just can't let someone see her scar.
+
+**Kei wondered that this have to do with her. Before he answered Kiotaka wanted to ask her one thing - did school know that she was bullied before. Kei was angry when she heard this questing, because this was very serious topic for her. But Kiyotaka insisted that this is relevant. She didn't have a choice and told him that she was doubting that school knew about. Her opinion was they just thought her poor attendance was due to her being sick or stupid. Even if school  investigated the matter, they probably wouldn't find any evidence of the bullying. No matter how often they beat her up, the school ignored the bullying, and wouldn’t do anything. They gave the bullies light warnings, at most.
+Of course, it got worse after that. No one admitted the truth. But she still is grateful to the people who bullied her, and the school that covered it up. No one here knows about here past. That’s why she was able to build new herself. She couldn’t have done that if everyone here had heard of the bullying.
+
+**Even if Kiyotaka thought that she deserved praise, but he neverless told that from now on  she is forbidden to do anything that supports bullying others. She pretended that she didn't understand. Even if she was bullying Sakura to prevent herself from becoming a victim, he couldn't tolerate that because Sakura helped him few time. He promised that if her position in class appear to be in danger then he will bring Hirata and even Chabashira-sensei to eliminate her enemies. Karuizawa wasn't person who would resort to violence, she was just playing that part to protect herself. This is way how she overcame her trauma.
+
+**Karuizawa wondered why bringing up her past felt so suprisingly fine. 
+
+**She was curious about Kiotaka's real personality, because he acted completely different. Kiyotaka's usual self is gloomy and not very talkative guy, but now he was assertive and very direct. He told you if she was interested in who was he really she just would just keep her eye on him to determine what kind of person he is.
+
+**After that they returned to the conversation about school. At last day of summer vacation four of us guys- Kiyotaka, Ike, Yamauchi and Sudou-are planning to go out, along with Horikata, Sakura and Kushida. He wanted that Kei joined them. She had no connection to the group so she was obviously was suprised and angry. He told her that she can't refuse. To show her some consideration
+```
+
 She had no connection to the group. If anything, there was tension between her and them. “
 You can put on your swimsuit at the dorm, wear your clothes over it, and come along. It’ll probably be unpleasant, but if you return to the dorm dressed the same way,
 everything should be fine,” I said.
