@@ -615,43 +615,41 @@ The next morning, Kei was seen cleaning in the camp along with the girls. At the
 
 **Anime adapted first 3 volumes of light novel and pool episode from volume 4.5. But scenes related to Kei was cut off or changed drasically.**
 
-**Kei Karuizawa apparently begins to date Yōsuke Hirata according to rumors that are spreading among the students.**
+**Kei Karuizawa apparently began to date Yōsuke Hirata according to rumors that was spreading among the students.**
 
-**After school is out for one day, The Idiot Trio invites Kiyotaka to go out with them for the evening, including that Kikyō would also be coming. She shows up and admits that she had invited Yōsuke Hirata, Kei Karuizawa, Nene Mori, and Chiaki Matsushita to join them after they accendenlty meet each over. The awkward group leaves to go look around campus. While they were hanging around the mall, Kei spent 30.000 points on different clothes. They talk a bit about relationships until the group's conversation turns into one about the monthly point balances. As everyone expresses their opinions about the school's point balances, Kei said that 100.000 points isn't enough for her.**[950] [#950change]
+**After school was out for one day, The Idiot Trio invited Kiyotaka to go out with them for the evening, including that Kikyō would also be coming. She showed up and admited that she had invited Yōsuke Hirata, Kei Karuizawa, Nene Mori, and Chiaki Matsushita to join them after they accendenlty met each over. The awkward group left to go look around campus. While they were hanging around the mall, Kei spent 30.000 points on different clothes. They talked a bit about relationships until the group's conversation turns into one about the monthly point balances. As everyone expresseed their opinions about the school's point balances, Kei said that 100.000 points isn't enough for her.**[950] [#950change]
 
 **After spending all her points from the first month and D-Class not receiving any, due to their penalties, she asked the girls of her class to lend her some money to buy the 'essentials', managing to gain at least 2000 points from Kikyō Kushida and other girls from her class.**
 
-**When Chabashira announces to the class that Sudō had gotten in a fight a few days earlier with C-Class students and that the two sides had given conflicting reports of what happened. Many of the students from Class 1-D begin to voice their frustration for Sudō and his attitude. Although students voice their dissatisfaction, Yōsuke Hirata and Kei Karuizawa back her up and the atmosphere in the class changes into one motivated to prove Sudō innocent.** [10](#475change)
+**When Chabashira announced to the class that Sudō had gotten in a fight a few days earlier with C-Class students and that the two sides had given conflicting reports of what happened. Many of the students from Class 1-D began to voice their frustration for Sudō and his attitude. Although students voiceed their dissatisfaction, Yōsuke Hirata and Kei Karuizawa backed him up and the atmosphere in the class changed into one motivated to prove Sudō innocent.** [10](#475change)
 
 **After school, two groups of students were formed in order to search for the potential witness to the event, with Hirata and Karuizawa leading one group and Kushida leading the other.** [11](#12change)
 
 **The first-year students of the Advanced Nurturing High School went on a luxurious liner for a 2-week cruise trip prepared by the school, after the end-of-term exam. Kei and her friend in particular were enjoying the atmosphere and sceneries.** [12](#13change)
 
-**Arrived on island Yōsuke Hirata lists and discusses the needs of camping spots and necessities. The girls and boys sides, particularly Shinohara and Ike, start arguing again about the toilet matter. Since a temporary one costs 20 points, the boys want to use just the cardboard ones to preserve their points as much as possible and only spend them when necessary, while the girls object to the idea. When girls asked opinion of Kei, she said that they should save as many points as possible, even if they have to use cardbox toilet** [13](#11change)
+**Arrived on island Yōsuke Hirata lists and discusses the needs of camping spots and necessities. The girls and boys sides, particularly Shinohara and Ike, started arguing again about the toilet matter. Since a temporary one costs 20 points, the boys wanted to use just the cardboard ones to preserve their points as much as possible and only spent them when necessary, while the girls objected to the idea. When girls asked opinion of Kei, she said that they should save as many points as possible, even if they have to use cardbox toilet** [13](#11change)
 
-**Towards the end of the survival test week, Kei was found crying in the girl's tent as her underwear was apparently stolen. The girls of her class had Yōsuke check all the boys and their luggage to find it.**
+**While sleeping, the boys suddenly got waken up by the girls, who appear upset. Shinohara informed that Karuizawa's underwear has been stolen. As their luggage was put outside the tents to make space, Shinohara believed someone had gone through them and taken it. Karuizawa was in tears and being comforted by other girls in the tent, while the boys became alerted of the situation.**
 
-**While sleeping, the boys suddenly get waken up by the girls, who appear upset. Shinohara informs that Karuizawa's underwear has been stolen. As their luggage was put outside the tents to make space, Shinohara believes someone has gone through them and taken it. Karuizawa is in tears and being comforted by other girls in the tent, while the boys become alerted of the situation.**
+**The girls requested to live separately from the boys as they still believed the culprit is among them. D-Class's unity started falling apart as both sides have a huge argument about it. The girls, led by Karuizawa and Shinohara, ask Hirata for help as they could trust him, but Suzune opposed against it. Suzune explained her reasoning and wants another boy, in this case Kiyotaka, to watch over Hirata. The girls castde their doubts on him, they thought that he acted too suspicious, but Airi tried to defend him. Karuizawa lashed out at Airi and started teasing her, with other girls joining in. Unable to bear it, Airi ran off into the forest.** [14](#14change)
 
-**The girls request to live separately from the boys as they still believe the culprit is among them. D-Class's unity start falling apart as both sides have a huge argument about it. The girls, lead by Karuizawa and Shinohara, ask Hirata for help as they can trust him, but Suzune opposes against it. Suzune explains her reasoning and wants another boy, in this case Kiyotaka, to watch over Hirata. The girls cast their doubts on him, they think that he acted too suspicious, but Airi tries to defend him. Karuizawa lashes out at Airi and starts teasing her, with other girls joining in. Unable to bear it, Airi runs off into the forest.** [14](#14change)
-
-**After further explanations from Suzune, Karuizawa agrees to let Kiyotaka be on guard as he seems to be the most harmless and Hirata is fine with it. Trying to calm both parties, Hirata voices his thoughts over the matter, stating that he does not want the class to doubt their own classmates. Someone then mentions Ibuki as a possible suspect but Shinohara and Karuizawa still keep their suspicions on the boys.**
+**After further explanations from Suzune, Karuizawa agreed to let Kiyotaka be on guard as he seems to be the most harmless and Hirata is fine with it. Trying to calm both parties, Hirata voiced his thoughts over the matter, stating that he didn't not want the class to doubt their own classmates. Someone then mentioned Ibuki as a possible suspect but Shinohara and Karuizawa still kept their suspicions on the boys.**
 
 **Unlike the boys’ tent, which was Spartan-like in its lack of comfort, the girls’ tent was completely different. It was spacious, with a floor mat on the ground so that they wouldn’t have to sleep on the hard earth. There were several pillows inflated with air. On top of that was a battery-powered cordless fan. Girls hadn’t sacrificed anything from the very start. They’d simply bought whatever they needed. It was Karuizawa-san and the others asked for these. Apparently, they’d secretly indulged themselves quite well.**  [15](#15change)
 
-**When D-Class returns to the ship, they met Suzune, that still looking pale, and the students gather around her.  Karuizawa apologises for what she said, stating that Ibuki was the underwear theft and Kiyotaka has told them everything. She says that Suzune had tried to chase after Ibuki, and she also found out C-Class and A-Class leaders and told Hirata about it.**
+**When D-Class returned to the ship, they met Suzune, that still looking pale, and the students gathered around her.  Karuizawa apologized for what she said, stating that Ibuki was the underwear theft and Kiyotaka has told them everything. She said that Suzune had tried to chase after Ibuki, and she also found out C-Class and A-Class leaders and told Hirata about it.**
 
 __Spoilers__
 
-**Before next exam starts Kei gives a monologue reflecting on how nothing has changed since she entered the school. From the beginning, she had no intention of changing anything, as she simply understands herself more than anyone else, both in strengths and weaknesses. Even when no one likes her she still doesn't want to change, because she had wanted this. Looking at herself in the mirror after getting out of the bathroom, she suddenly feels dizzy and throws up. She keeps asking herself on the reason for her sufferings, without being able to change anything from the past. As such, she will do anything to protect herself, to ensure that will never happen again. She declares herself a 'parasite', a weak creature incapable of surviving on its own.** [16](#16change)
+**Before next exam started Kei gave a monologue reflecting on how nothing has changed since she entered the school. From the beginning, she had no intention of changing anything, as she simply understands herself more than anyone else, both in strengths and weaknesses. Even when no one liked her she still didn't want to change, because she had wanted this. Looking at herself in the mirror after getting out of the bathroom, she suddenly felt dizzy and throws up. She keep asking herself on the reason for her sufferings, without being able to change anything from the past. As such, she will do anything to protect herself, to ensure that will never happen again. She declared herself a 'parasite', a weak creature incapable of surviving on its own.** [16](#16change)
 
 **After returning on the ship, Hirata and Kiyotaka were relaxing at their room. Hirata tells Kiyotaka about his plan on having lunch with Karuizawa and invites him to tag along. Kiyotaka denies, stating he would probably not get along with Karuizawa's group. Hirata insists on inviting him and asks whether it would be fine if there's only two of them. Kiyotaka says Karuizawa may not be happy with it as an attempt to decline, but Hirata reassures him, saying that he has limited opportunities to eat together with him while he can eat with Karuizawa whenever he wants. Kiyotaka doesn't have a choice and and agrees to his suggestion.** 
 
-**Hirata wants to find a way for getting help from Suzune but before two of them can come to some conclusion, Karuizawa approaches them and calls out to Hirata. While Hirata tries telling her about their cancelled lunch, Karuizawa and her friends join in and quickly push Kiyotaka out of the group.** [17](#17change)
+**Hirata wanted to find a way for getting help from Suzune but before two of them can come to some conclusion, Karuizawa approached them and called out to Hirata. While Hirata tried telling her about their cancelled lunch, Karuizawa and her friends joined in and quickly push Kiyotaka out of the group.** [17](#17change)
 
-**At 18:00, Karuizawa enters and sits down. There is Mashima, Class A's homeroom teacher, along with three of his classmates, Hideo Sotomura and Teruhiko Yukimura, and Kiyotaka Ayanokoji, and one empty seat. She wonders why her classmates are also there but gets reprimanded by Mashima for being late.
+**At 18:00, Karuizawa entered and sat down. There was Mashima, Class A's homeroom teacher, along with three of his classmates, Hideo Sotomura and Teruhiko Yukimura, and Kiyotaka Ayanokoji, and one empty seat. She wondered why her classmates are also there but got reprimanded by Mashima for being late.
 
-**Mashima then explains the contents of the new special exam. The four of them will also be in the same group and they may be joined in by some other students, who are also receiving the same explanations in other rooms. Karuizawa berates that she has to be in the same room as the three boys and prefers to be with Hirata. Unable to stay silent, Kei reflexively spoke up with one question after another.  Yukimura loses his patience and starts arguing with her, but Kiyotaka quickly intervenes. Mashima briefly scolds them and tells them to get along, but Karuizawa refuses and expresses her disgust. Karuizawa then asks Mashima on why only the four of them are getting this explanation, with Mashima explaining that there's a risk of confusing the students if the exam itself is not explained like this in advance, since there isn't just one class being divided but 3 to 5 people from each class being divided into groups.** 
+**Mashima then explained the contents of the new special exam. The four of them will also be in the same group and they may be joined in by some other students, who was also receiving the same explanations in other rooms. Karuizawa berated that she had to be in the same room as the three boys and prefers to be with Hirata. Unable to stay silent, Kei reflexively spoke up with one question after another.  Yukimura lost his patience and starts arguing with her, but Kiyotaka quickly intervened. Mashima briefly scolded them and told them to get along, but Karuizawa refused and expressesed her disgust. Karuizawa then asked Mashima on why only the four of them are getting this explanation, with Mashima explaining that there's a risk of confusing the students if the exam itself was not explained like this in advance, since there wasn't just one class being divided but 3 to 5 people from each class being divided into groups.** 
 
 
 ~~There was another exam on the ship after their return from the survival island. In this exam, their objective was to find a traitor hidden among the groups that were divided into 12 different groups based on the Chinese zodiac's names among all classes. Kei was put into the same group as Kiyotaka, Teruhiko Yukimura, Hideo Sotomura,~~ __Beside her classmates she was put in group__ ~~and~~ of students from other classes such as Honami Ichinose from B-Class, Machida from A-Class, and Mio Ibuki and Shiho Manabe from C-Class. ~~Kei couldn't hide her dissatisfaction when seeing Kiyotaka and others as her groupmates.~~ **Kei couldn't hide her dissatisfaction when seeing Mio Ibuki as her groupmates.** [18](#18change) 
@@ -745,7 +743,144 @@ Of course, it got worse after that. No one admitted the truth. But she still is 
 
 **She was curious about Kiotaka's real personality, because he acted completely different. Kiyotaka's usual self is gloomy and not very talkative guy, but now he was assertive and very direct. He told you if she was interested in who was he really she just would just keep her eye on him to determine what kind of person he is.**
 
-**After that they returned to the conversation about school. At last day of summer vacation four of us guys- Kiyotaka, Ike, Yamauchi and Sudou-are planning to go out, along with Horikata, Sakura and Kushida. He wanted that Kei joined them. She had no connection to the group so she was obviously was suprised and angry. He told her that she can't refuse. To show her some consideration he mentioned that she didn't have to participate. After that he explained in detail why he called her. This task gave Karuizawa headache. She asked why couldn't he ask Horikita. He replied that he still can't full trust her and all his action was independant of her. Karuizawa looked happy when she heard that she is more trustworthy than Horikita. In the end she agreed to carry out his orders.** [41](#41change)
+**After that they returned to the conversation about school. At last day of summer vacation four of them guys- Kiyotaka, Ike, Yamauchi and Sudou-are planning to go out, along with Horikata, Sakura and Kushida. He wanted that Kei joined them. She had no connection to the group so she was obviously was suprised and angry. He told her that she can't refuse. To show her some consideration he mentioned that she didn't have to participate. After that he explained in detail why he called her. This task gave Karuizawa headache. She asked why couldn't he ask Horikita. He replied that he still can't full trust her and all his action was independant of her. Karuizawa looked happy when she heard that she is more trustworthy than Horikita. In the end she agreed to carry out his orders.** [41](#41change)
+
+**When it was almost closing time, everybody head back before the crowds got worse. While everyone got changed, Kei appeared in front of Kiyotaka who slipped away and waited for her by the pool. She expressed her worry about
+```
+
+Karuizawa looked around once more, as if worried about prying eyes. 
+“Even though it’s fake, I’m still supposed to be going out with Hirata-kun. If I’m seen alone with you, weird rumors might spring up.”
+“Really? Well, maybe they would if I were a pretty boy like Hirata. Sadly, I’m completely lacking in hotness. At best, people will think you’re part of our group,” I told her.
+This was an innocuous place to be alone with a girl. It would have been a different story at night, on a secluded park bench, but not here. 
+Hirata, Karuizawa’s fake boyfriend, was nowhere to be seen. He was probably busy with club activities.
+I didn’t know much about the soccer club’s schedule, but he seemed like an active guy.
+“We were allowed to wear rash guards today. You saw them, right?” I asked. 
+“Well, yeah. But are you really okay with spending money on a rash guard? They’re pretty expensive.”
+“It was a necessary expense.”
+Karuizawa held out her hand, and I grabbed it. I felt something hard against my palm.
+“What are you planning, anyway?” asked Karuizawa. 
+“What do you mean?”
+“Why are you different from the others? You could just sit back and enjoy the show,” she said.
+Ah, so we were discussing what I held in my hand. 
+“It could have ended up fracturing the class. I want to avoid that.” 
+That was why I’d called Karuizawa to meet me, although getting her to enjoy the pool had been another of my goals. 
+“Did you invite anyone else?” 
+“I’m alone. I was with two others, but I told them to go off on their own and have fun.”
+“A wise decision.” 
+I started walking slowly along the side of the pool. Karuizawa trailed me. 
+“Are you aiming for Class A, then?” she asked. 
+“You’re not interested?” 
+“Hmm, I dunno. I do want points, and I’d be happy to get a job anywhere, but…”
+She kicked the air, hands in her pockets.
+“I don’t really feel like duking it out with those Class C students, I guess.” 
+Karuizawa was referring to a specific group of Class C girls.
+Even though I’d managed to contain things to a degree, Karuizawa couldn’t face the girls directly without triggering the past trauma of them bullying her. 
+Until that mental prison released her, Karuizawa could never demonstrate her true talents.
+“I want to talk to you about something. Just you,” I said.
+“What is it?” 
+“I don’t know what our next test will be, but I was thinking about preparing a certain trick.” 
+“A trick?” 
+As we walked, blending into all the hustle and bustle, we discussed extremely important things. Things I hadn’t even talked to Horikita about. 
+“To have someone expelled.” 
+“Huh?” 
+Karuizawa stopped dead in her tracks, as though she didn’t understand what I meant. When I continued walking, she hurriedly chased after me. 
+“W-wait a minute. What do you mean?!” 
+“Exactly what I said. I’m going to have a first-year student expelled. The ideal candidates would be those three girls who know about your past. If we can’t get to them, then perhaps someone else. If that doesn’t work, then—”
+I began.
+“Th-then what?” 
+“Probably some unnecessary human being from Class D.”
+“You do understand what you’re saying, don’t you? Getting someone expelled isn’t that easy,” Karuizawa replied.
+“You don’t think so? That’s not really true. I actually have the option available right now.” 
+Fingers wrapped tight around the object Karuizawa had handed me, I drew her attention to my hand. 
+“Wait, don’t tell me. Is that what it’s for?” she asked, incredulous. “Depending on the situation, I could get someone expelled in a single stroke. Right?” 
+“B-but wait. Why are you talking about this? You went all out trying to save Sudou-kun earlier, right?”
+It was true that I’d rescued Sudou from the threat of expulsion. However, that was before I was forced to commit to reaching Class A.
+As Horikita once said, I had to prepare for the eventuality of cutting off people who dragged us down. 
+“Even though you saved Sudou-kun, you’re going to kick him out?” Karuizawa asked.
+“Oh no. I have no intention of getting rid of Sudou. His physical skill will be quite valuable to Class D,” I replied.
+There weren’t many other students in the whole school with comparable abilities, including Kouenji. 
+“But what will happen to our class points if someone is expelled?” wondered Karuizawa apprehensively.
+“The best option would be to expel someone from another class, of course.” 
+However, if a student from our class was expelled, fear would motivate the survivors to struggle mightily. That wouldn’t be the worst thing. 
+“You’re awful, you know that?” said Karuizawa.
+“Surely you already realized that about me?”
+“I guess.”
+I’d threatened Karuizawa. My actions had verged on assault. I couldn’t imagine that she considered me a good person.
+“How about consulting Hirata-kun?” she asked. 
+“I have concerns about that. Hirata still isn’t someone I can fully trust,” I replied.
+“Huh?”
+“You know about his past?” 
+“Oh, yeah. He told me about it when I told him what happened to me. His friend tried to commit suicide by jumping, right?” 
+That was right. Hirata had told me that he still carried that regret around with him, which was probably true.
+“Do you really believe that his friend’s suicide attempt turned him into a student who’d be placed in Class D?” I asked. 
+“Huh?”
+“That can’t be the only reason for the school to assign a highly intelligent and immensely popular student to our class. Don’t you agree?” 
+Placement in Class D would have been understandable if Hirata had poor attendance, or low grades like Karuizawa, but that didn’t appear to be the case. 
+“Wait. You asked about my past because…”
+“I wanted to understand Hirata’s situation. Past trauma doesn’t equate to getting placed in Class D,” I replied.
+Confirming things with Karuizawa had convinced me that she was someone I could trust. However, Hirata wouldn’t be easy to deal with. 
+I’d need to discreetly figure out whether he was telling the truth or lying.
+“You keep trying to gather information by poking and prodding, but you’re not telling me anything,” grumbled Karuizawa.
+“Hmm?”
+“You’re not normal, like, at all. Something definitely happened to you.” 
+“Nothing really happened to me,” I replied. 
+“That’s a lie.”
+Nothing had happened. I wasn’t bullied in the past like Karuizawa, and I hadn’t had a beloved friend attempt suicide like Hirata, either.
+“I can tell just from your eyes. You look like you could kill someone without hesitation.”
+“Nothing that dramatic took place in my past.” 
+There really was nothing. So little had happened to me that I had nothing to talk about. My life was a blank slate. Karuizawa’s eyes locked onto me.
+She probably couldn’t help but wonder what her future contained. Holding onto that fear could most certainly prove useful.
+However, she’d asked me what I intended to do. Almost as if answering that question, I clenched my fist tighter. As I did so, I heard the plastic in my hand bend and crack. 
+“H-hey!” 
+I walked to the garbage bin and tossed away the bits of plastic.
+“I won’t expel anyone from Class D. It’s about time for me to get back to the group. Thanks for today,” I said.
+“Okay…”
+“Let’s head back, then.” 
+As the pool closed, students started to flood into the locker rooms. Which group you belonged to seemed to determine when you headed back. 
+There were groups that left before closing, like Ichinose’s, groups that left just when the closing call came, and groups that remained in the pool until the very last second.
+I wondered which groups would make it back the fastest. We quietly watched the other students as they walked away. 
+After some time, the area was deserted, except for some lifeguards. 
+“You’re still not heading back?” I asked. 
+“You already know the answer, so why even ask?”
+Karuizawa lightly patted the spot on her rash guard right above her scar. She looked desperate. Still, it wasn’t like she could go home without changing.
+She had to wait until she was the last person in the locker room. 
+“It would be fine if you just wore a school-issued swimsuit, right?” I asked. 
+No one would notice her scar. 
+“Ugh, swim with one of those on? No way. They’re too lame. I already hate having to wear one during lessons.”
+Apparently, the world of girls was crueler than I thought. Even an unfashionable bathing suit could demote you on the social ladder.
+“Do you like swimming?” 
+“Huh? Well, I don’t hate it,” she said.
+“How about taking a little swim now? There aren’t any students around. The only people here are lifeguards, and they look busy cleaning up.”
+Karuizawa pondered the idea. After all, it was better than the crowded locker rooms. 
+“I’m okay,” she muttered. 
+“Come on.”
+“No, I won’t ‘come on.’ I told you, I don’t want to.”
+“Even if someone sees you, you’ll be fine, as long as you’re wearing the school swimsuit.” 
+“That’s not the problem. Why do I have to show you my swimsuit?” she huffed.
+So, that was what held her back. In that case, I thought perhaps I should use a slightly more aggressive method.
+“That’s an order.” 
+Karuizawa glared at me. 
+“You seriously are the worst. I absolutely hate you.” She scowled. 
+“You decide whether to obey me or not. So, what’ll it be?” 
+“I understand,” she replied.
+Karuizawa reluctantly did as instructed, pouting with dissatisfaction. She removed her rash guard and left it on a chair. I inspected her in her swimsuit.
+Karuizawa stood with her back to me, not turning around.
+“Maybe this will be the only thing I can wear swimming for the rest of my life,” she muttered.
+She was still terrified that her scar would draw people’s attention. I closed the distance between us and grabbed her arm.
+“Wh-what are you—?!” 
+I shoved Karuizawa into the pool.
+Splash! 
+She crashed into the water. When a lifeguard heard the noise, she shouted at us with a megaphone. 
+“We’re closed! Please leave right now!” 
+“Pwah! What’d you do that for?!” Karuizawa shouted. 
+As she peeked angrily out from the water, I offered her my hand.
+“Did you have fun?” I asked.
+“Being pushed in isn’t exactly fun, you know.” 
+Karuizawa took hold of my outstretched hand. Then, without warning, she pulled me into the water. I didn’t resist at all, taking care not to crash into her when I fell. 
+The resulting splash, even bigger than before, would certainly anger the lifeguards. Karuizawa laughed as they rushed over to us.
+When I tried to surface, she held my head down and pushed me deeper underwater.
+Even though the situation was childish, seeing Karuizawa enjoy something ended up making it worthwhile.
+```
 
 [43](#43change)
 
@@ -2282,7 +2417,6 @@ Together, we made our way toward the pool.
 Volume 4.5 Chapter 6 Part 7
 
 ```
-6.7
 When it was almost closing time, Ichinose proposed that we head back before the crowds got worse. We all agreed. 
 While everyone got changed, I slipped away and waited for my visitor by the pool. 
 “Ah, I’m so drained,” I muttered.
@@ -2337,12 +2471,94 @@ I began.
 “You do understand what you’re saying, don’t you? Getting someone expelled isn’t that easy,” Karuizawa replied.
 “You don’t think so? That’s not really true. I actually have the option available right now.” 
 Fingers wrapped tight around the object Karuizawa had handed me, I drew her attention to my hand. 
-“Wait, don’t tell me. Is that what it’s for?” she asked, incredulous. “Depending on the situation, I could get someone expelled in a single stroke. Right?” “B-but wait. Why are you talking about this? You went all out trying to save Sudou-kun earlier, right?” It was true that I’d rescued Sudou from the threat of expulsion. However, that was before I was forced to commit to reaching Class A. As Horikita once said, I had to prepare for the eventuality of cutting off people who dragged us down. “Even though you saved Sudou-kun, you’re going to kick him out?” Karuizawa asked. “Oh no. I have no intention of getting rid of Sudou. His physical skill will be quite valuable to Class D,” I replied. There weren’t many other students in the whole school with comparable abilities, including Kouenji. “But what will happen to our class points if someone is expelled?” wondered Karuizawa apprehensively. “The best option would be to expel someone from another class, of course.” However, if a student from our class was expelled, fear would motivate the survivors to struggle mightily. That wouldn’t be the worst thing. “You’re awful, you know that?” said Karuizawa. “Surely you already realized that about me?” “I guess.” I’d threatened Karuizawa. My actions had verged on assault. I couldn’t imagine that she considered me a good person. “How about consulting Hirata-kun?” she asked. “I have concerns about that. Hirata still isn’t someone I can fully trust,” I replied.
-“Huh?” “You know about his past?” “Oh, yeah. He told me about it when I told him what happened to me. His friend tried to commit suicide by jumping, right?” That was right. Hirata had told me that he still carried that regret around with him, which was probably true. “Do you really believe that his friend’s suicide attempt turned him into a student who’d be placed in Class D?” I asked. “Huh?” “That can’t be the only reason for the school to assign a highly intelligent and immensely popular student to our class. Don’t you agree?” Placement in Class D would have been understandable if Hirata had poor attendance, or low grades like Karuizawa, but that didn’t appear to be the case. “Wait. You asked about my past because…” “I wanted to understand Hirata’s situation. Past trauma doesn’t equate to getting placed in Class D,” I replied. Confirming things with Karuizawa had convinced me that she was someone I could trust. However, Hirata wouldn’t be easy to deal with. I’d need to discreetly figure out whether he was telling the truth or lying. “You keep trying to gather information by poking and prodding, but you’re not telling me anything,” grumbled Karuizawa. “Hmm?” “You’re not normal, like, at all. Something definitely happened to you.” “Nothing really happened to me,” I replied. “That’s a lie.” Nothing had happened. I wasn’t bullied in the past like Karuizawa, and I hadn’t had a beloved friend attempt suicide like Hirata, either. “I can tell just from your eyes. You look like you could kill someone without hesitation.” “Nothing that dramatic took place in my past.” There really was nothing. So little had happened to me that I had nothing to talk about. My life was a blank slate. Karuizawa’s eyes locked onto me. She probably couldn’t help but wonder what her future contained. Holding onto that fear could most certainly prove useful.
-However, she’d asked me what I intended to do. Almost as if answering that question, I clenched my fist tighter. As I did so, I heard the plastic in my hand bend and crack. “H-hey!” I walked to the garbage bin and tossed away the bits of plastic. “I won’t expel anyone from Class D. It’s about time for me to get back to the group. Thanks for today,” I said. “Okay…” “Let’s head back, then.” As the pool closed, students started to flood into the locker rooms. Which group you belonged to seemed to determine when you headed back. There were groups that left before closing, like Ichinose’s, groups that left just when the closing call came, and groups that remained in the pool until the very last second. I wondered which groups would make it back the fastest. We quietly watched the other students as they walked away. After some time, the area was deserted, except for some lifeguards. “You’re still not heading back?” I asked. “You already know the answer, so why even ask?” Karuizawa lightly patted the spot on her rash guard right above her scar. She looked desperate. Still, it wasn’t like she could go home without changing. She had to wait until she was the last person in the locker room. “It would be fine if you just wore a school-issued swimsuit, right?” I asked. No one would notice her scar. “Ugh, swim with one of those on? No way. They’re too lame. I already hate having to wear one during lessons.” Apparently, the world of girls was crueler than I thought. Even an unfashionable bathing suit could demote you on the social ladder. “Do you like swimming?” “Huh? Well, I don’t hate it,” she said. “How about taking a little swim now? There aren’t any students around. The only people here are lifeguards, and they look busy cleaning up.” Karuizawa pondered the idea. After all, it was better than the crowded locker rooms. “I’m okay,” she muttered. “Come on.”
-“No, I won’t ‘come on.’ I told you, I don’t want to.” “Even if someone sees you, you’ll be fine, as long as you’re wearing the school swimsuit.” “That’s not the problem. Why do I have to show you my swimsuit?” she huffed.
-
-So, that was what held her back. In that case, I thought perhaps I should use a slightly more aggressive method. “That’s an order.” Karuizawa glared at me. “You seriously are the worst. I absolutely hate you.” She scowled. “You decide whether to obey me or not. So, what’ll it be?” “I understand,” she replied. Karuizawa reluctantly did as instructed, pouting with dissatisfaction. She removed her rash guard and left it on a chair. I inspected her in her swimsuit. Karuizawa stood with her back to me, not turning around. “Maybe this will be the only thing I can wear swimming for the rest of my life,” she muttered. She was still terrified that her scar would draw people’s attention. I closed the distance between us and grabbed her arm. “Wh-what are you—?!” I shoved Karuizawa into the pool. Splash! She crashed into the water. When a lifeguard heard the noise, she shouted at us with a megaphone. “We’re closed! Please leave right now!” “Pwah! What’d you do that for?!” Karuizawa shouted. As she peeked angrily out from the water, I offered her my hand. “Did you have fun?” I asked. “Being pushed in isn’t exactly fun, you know.” Karuizawa took hold of my outstretched hand. Then, without warning, she pulled me into the water. I didn’t resist at all, taking care not to crash into her when I fell. The resulting splash, even bigger than before, would certainly anger the lifeguards. Karuizawa laughed as they rushed over to us. When I tried to surface, she held my head down and pushed me deeper underwater. Even though the situation was childish, seeing Karuizawa enjoy something ended up making it worthwhile.
+“Wait, don’t tell me. Is that what it’s for?” she asked, incredulous. “Depending on the situation, I could get someone expelled in a single stroke. Right?” 
+“B-but wait. Why are you talking about this? You went all out trying to save Sudou-kun earlier, right?”
+It was true that I’d rescued Sudou from the threat of expulsion. However, that was before I was forced to commit to reaching Class A.
+As Horikita once said, I had to prepare for the eventuality of cutting off people who dragged us down. 
+“Even though you saved Sudou-kun, you’re going to kick him out?” Karuizawa asked.
+“Oh no. I have no intention of getting rid of Sudou. His physical skill will be quite valuable to Class D,” I replied.
+There weren’t many other students in the whole school with comparable abilities, including Kouenji. 
+“But what will happen to our class points if someone is expelled?” wondered Karuizawa apprehensively.
+“The best option would be to expel someone from another class, of course.” 
+However, if a student from our class was expelled, fear would motivate the survivors to struggle mightily. That wouldn’t be the worst thing. 
+“You’re awful, you know that?” said Karuizawa.
+“Surely you already realized that about me?”
+“I guess.”
+I’d threatened Karuizawa. My actions had verged on assault. I couldn’t imagine that she considered me a good person.
+“How about consulting Hirata-kun?” she asked. 
+“I have concerns about that. Hirata still isn’t someone I can fully trust,” I replied.
+“Huh?”
+“You know about his past?” 
+“Oh, yeah. He told me about it when I told him what happened to me. His friend tried to commit suicide by jumping, right?” 
+That was right. Hirata had told me that he still carried that regret around with him, which was probably true.
+“Do you really believe that his friend’s suicide attempt turned him into a student who’d be placed in Class D?” I asked. 
+“Huh?”
+“That can’t be the only reason for the school to assign a highly intelligent and immensely popular student to our class. Don’t you agree?” 
+Placement in Class D would have been understandable if Hirata had poor attendance, or low grades like Karuizawa, but that didn’t appear to be the case. 
+“Wait. You asked about my past because…”
+“I wanted to understand Hirata’s situation. Past trauma doesn’t equate to getting placed in Class D,” I replied.
+Confirming things with Karuizawa had convinced me that she was someone I could trust. However, Hirata wouldn’t be easy to deal with. 
+I’d need to discreetly figure out whether he was telling the truth or lying.
+“You keep trying to gather information by poking and prodding, but you’re not telling me anything,” grumbled Karuizawa.
+“Hmm?”
+“You’re not normal, like, at all. Something definitely happened to you.” 
+“Nothing really happened to me,” I replied. 
+“That’s a lie.”
+Nothing had happened. I wasn’t bullied in the past like Karuizawa, and I hadn’t had a beloved friend attempt suicide like Hirata, either.
+“I can tell just from your eyes. You look like you could kill someone without hesitation.”
+“Nothing that dramatic took place in my past.” 
+There really was nothing. So little had happened to me that I had nothing to talk about. My life was a blank slate. Karuizawa’s eyes locked onto me.
+She probably couldn’t help but wonder what her future contained. Holding onto that fear could most certainly prove useful.
+However, she’d asked me what I intended to do. Almost as if answering that question, I clenched my fist tighter. As I did so, I heard the plastic in my hand bend and crack. 
+“H-hey!” 
+I walked to the garbage bin and tossed away the bits of plastic.
+“I won’t expel anyone from Class D. It’s about time for me to get back to the group. Thanks for today,” I said.
+“Okay…”
+“Let’s head back, then.” 
+As the pool closed, students started to flood into the locker rooms. Which group you belonged to seemed to determine when you headed back. 
+There were groups that left before closing, like Ichinose’s, groups that left just when the closing call came, and groups that remained in the pool until the very last second.
+I wondered which groups would make it back the fastest. We quietly watched the other students as they walked away. 
+After some time, the area was deserted, except for some lifeguards. 
+“You’re still not heading back?” I asked. 
+“You already know the answer, so why even ask?”
+Karuizawa lightly patted the spot on her rash guard right above her scar. She looked desperate. Still, it wasn’t like she could go home without changing.
+She had to wait until she was the last person in the locker room. 
+“It would be fine if you just wore a school-issued swimsuit, right?” I asked. 
+No one would notice her scar. 
+“Ugh, swim with one of those on? No way. They’re too lame. I already hate having to wear one during lessons.”
+Apparently, the world of girls was crueler than I thought. Even an unfashionable bathing suit could demote you on the social ladder.
+“Do you like swimming?” 
+“Huh? Well, I don’t hate it,” she said.
+“How about taking a little swim now? There aren’t any students around. The only people here are lifeguards, and they look busy cleaning up.”
+Karuizawa pondered the idea. After all, it was better than the crowded locker rooms. 
+“I’m okay,” she muttered. 
+“Come on.”
+“No, I won’t ‘come on.’ I told you, I don’t want to.”
+“Even if someone sees you, you’ll be fine, as long as you’re wearing the school swimsuit.” 
+“That’s not the problem. Why do I have to show you my swimsuit?” she huffed.
+So, that was what held her back. In that case, I thought perhaps I should use a slightly more aggressive method.
+“That’s an order.” 
+Karuizawa glared at me. 
+“You seriously are the worst. I absolutely hate you.” She scowled. 
+“You decide whether to obey me or not. So, what’ll it be?” 
+“I understand,” she replied.
+Karuizawa reluctantly did as instructed, pouting with dissatisfaction. She removed her rash guard and left it on a chair. I inspected her in her swimsuit.
+Karuizawa stood with her back to me, not turning around.
+“Maybe this will be the only thing I can wear swimming for the rest of my life,” she muttered.
+She was still terrified that her scar would draw people’s attention. I closed the distance between us and grabbed her arm.
+“Wh-what are you—?!” 
+I shoved Karuizawa into the pool.
+Splash! 
+She crashed into the water. When a lifeguard heard the noise, she shouted at us with a megaphone. 
+“We’re closed! Please leave right now!” 
+“Pwah! What’d you do that for?!” Karuizawa shouted. 
+As she peeked angrily out from the water, I offered her my hand.
+“Did you have fun?” I asked.
+“Being pushed in isn’t exactly fun, you know.” 
+Karuizawa took hold of my outstretched hand. Then, without warning, she pulled me into the water. I didn’t resist at all, taking care not to crash into her when I fell. 
+The resulting splash, even bigger than before, would certainly anger the lifeguards. Karuizawa laughed as they rushed over to us.
+When I tried to surface, she held my head down and pushed me deeper underwater.
+Even though the situation was childish, seeing Karuizawa enjoy something ended up making it worthwhile.
 ```
 
 [:arrow_up:](#plot-b)
