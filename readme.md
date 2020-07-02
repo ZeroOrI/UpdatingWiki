@@ -745,37 +745,14 @@ Of course, it got worse after that. No one admitted the truth. But she still is 
 
 **After that they returned to the conversation about school. At last day of summer vacation four of them guys- Kiyotaka, Ike, Yamauchi and Sudou-are planning to go out, along with Horikata, Sakura and Kushida. He wanted that Kei joined them. She had no connection to the group so she was obviously was suprised and angry. He told her that she can't refuse. To show her some consideration he mentioned that she didn't have to participate. After that he explained in detail why he called her. This task gave Karuizawa headache. She asked why couldn't he ask Horikita. He replied that he still can't full trust her and all his action was independant of her. Karuizawa looked happy when she heard that she is more trustworthy than Horikita. In the end she agreed to carry out his orders.** [41](#41change)
 
-**When it was almost closing time, everybody head back before the crowds got worse. While everyone got changed, Kei appeared in front of Kiyotaka who slipped away and waited for her by the pool. She expressed her worry about
+**When it was almost closing time, everybody head back before the crowds got worse. While everyone got changed, Kei appeared in front of Kiyotaka who slipped away and waited for her by the pool. She expressed her worry that even if her relatioship with Hirata was fake she still had maintain their image as ideal pair. But Kiyotaka said she didn't need to overthink because everybody would just think that they were part of same company.**
+
+**After Karuizawa gave Kiyotaka memory card, she asked why didn't he just sit back and enjoy the show. He thought that it could have ended up fracturing class, and he wanted to avoid that. After this reply she was wondering if he did aim to class A. Possible confrontantion with class 1-C and specific group of girls frighten her, so she gave up on having more points.**
+
+**Kiyotaka had **
 ```
 
-Karuizawa looked around once more, as if worried about prying eyes. 
-“Even though it’s fake, I’m still supposed to be going out with Hirata-kun. If I’m seen alone with you, weird rumors might spring up.”
-“Really? Well, maybe they would if I were a pretty boy like Hirata. Sadly, I’m completely lacking in hotness. At best, people will think you’re part of our group,” I told her.
-This was an innocuous place to be alone with a girl. It would have been a different story at night, on a secluded park bench, but not here. 
-Hirata, Karuizawa’s fake boyfriend, was nowhere to be seen. He was probably busy with club activities.
-I didn’t know much about the soccer club’s schedule, but he seemed like an active guy.
-“We were allowed to wear rash guards today. You saw them, right?” I asked. 
-“Well, yeah. But are you really okay with spending money on a rash guard? They’re pretty expensive.”
-“It was a necessary expense.”
-Karuizawa held out her hand, and I grabbed it. I felt something hard against my palm.
-“What are you planning, anyway?” asked Karuizawa. 
-“What do you mean?”
-“Why are you different from the others? You could just sit back and enjoy the show,” she said.
-Ah, so we were discussing what I held in my hand. 
-“It could have ended up fracturing the class. I want to avoid that.” 
-That was why I’d called Karuizawa to meet me, although getting her to enjoy the pool had been another of my goals. 
-“Did you invite anyone else?” 
-“I’m alone. I was with two others, but I told them to go off on their own and have fun.”
-“A wise decision.” 
-I started walking slowly along the side of the pool. Karuizawa trailed me. 
-“Are you aiming for Class A, then?” she asked. 
-“You’re not interested?” 
-“Hmm, I dunno. I do want points, and I’d be happy to get a job anywhere, but…”
-She kicked the air, hands in her pockets.
-“I don’t really feel like duking it out with those Class C students, I guess.” 
-Karuizawa was referring to a specific group of Class C girls.
-Even though I’d managed to contain things to a degree, Karuizawa couldn’t face the girls directly without triggering the past trauma of them bullying her. 
-Until that mental prison released her, Karuizawa could never demonstrate her true talents.
+
 “I want to talk to you about something. Just you,” I said.
 “What is it?” 
 “I don’t know what our next test will be, but I was thinking about preparing a certain trick.” 
