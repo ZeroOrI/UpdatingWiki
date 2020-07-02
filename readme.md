@@ -770,6 +770,22 @@ Of course, it got worse after that. No one admitted the truth. But she still is 
 
 **Karuizawa was shouldering a psychological wound and a physical scar, none of them could be easily cured. Kiyotaka thought thay this might be me overestimating his capabilities, but if his existence can bring healing to this person, then as a person, this is something worth being happy.** [44](#44change)
 
+**Gathered in the Pallet cafe at the end of their summer vacation, Kiyotaka Ayanokōji, Kei Karuizawa, Yōsuke Hirata, and Suzune Horikita talk about the results of the zodiac special exam that took place on the cruise ship. The students’ surnames were the key to figuring out the VIPs’ identities. They were assigned in the order of the animals of the zodiac. Hirata also brings up the subject of how they can further unify their class going forward. The rabbit is fourth in the zodiac. If you put the names of the students in the rabbit group in alphabetical order, it would be Ayanokouji, Ichinose, Ibuki, and then Kei. Because of that Kei became VIP.**
+
+**At first glance, everyone'd have thought that the two girls sitting here were completely incompatible, but Hirata’s presence made the discomfort between them mysteriously disappear.**
+
+**Group was interested how Ryuuen figured it all out in middle of the test. Horikita and Hirata asked opinion of Kiyotaka, but he replied that he didn't know. While two of them lost thier interest in him Karuizawa still stared at him until their eyes met.**
+
+**During their converstation Kiyotaka noticed that Karuizawa had suddenly started calling Hirata by his first name. Nobody would ever have thought that their relationship had been strained, because how close they looked.**
+
+**Hirata also brought up the subject of how they could further unify their class going forward. He suggested to rope in Kushida as an ally. Horikita said that was unnecessary while they two planned to be uncooperative like Kiyotaka. Kei agreed with her on that matter.** [45](#45change)
+
+**Suzune also agrees, and then she proposes a supplementary plan where, in addition to letting the students who are more talented at sports participate in the Recommended Only events, they should also pair up the stronger athletes with the weaker ones in the Universal Participation events in order to further increase the chances of victory for the stronger athletes. Some students disagree to this tactic as it would mean sacrificing the less athletic students. Karuizawa in particular objects and asks Kikyō Kushida for her opinion. Kushida replies that she would prefer a plan where both sides could benefit and agree on. A vote of majority is taken and Suzune's plan wins.
+
+Sudō reiterates his intention to participate in as many events as possible. Suzune also declares that she would do the same. The class begins filling the slots for the events. Discussion ends for the day.
+
+After school, Kiyotaka sends an email to someone. He then meets Karuizawa out in the hallway, and they talk about the message Kiyotaka had sent her earlier - to object to any plan Suzune comes up with before immediately asking for Kushida's opinion. Karuizawa asks Kiyotaka what his intentions are, and Kiyotaka says he has no interest in reaching Class A but it also wouldn't be bad to put Class D in a position where they are capable of it. Their conversation ends with Kiyotaka predicting that there would be a traitor coming from Class D during the sports festival.**
+
 
 [Return to content](#content)
 
@@ -2558,6 +2574,69 @@ Even so, Karuizawa still didn’t intend to stand up, this was because there was
 Karuizawa was shouldering a psychological wound and a physical scar, none of them could be easily cured.
 
 This might be me overestimating my capabilities, but if my existence can bring healing to this person, then as a person, this is something worth being happy.
+```
+
+[:arrow_up:](#plot-b)
+
+##### 45change
+Volume 5 Chapter 2
+```
+“The students’ surnames were the key to figuring out the VIPs’ identities. They were assigned in the order of the animals of the zodiac.”
+We sat at a table all the way in the back of the crowded café, Pallet.
+Summer vacation had just ended, and I was seated with a bizarre crew that included Hirata, Karuizawa, and Horikita. 
+We were trying to review the special exam that’d been held on the cruise ship during our vacation, comparing notes on the test that divided us up
+into groups based on the twelve zodiac signs. 
+“The rabbit is fourth in the zodiac. If you put the names of the students in the rabbit group in alphabetical order, it would be Ayanokoujikun, Ichinose-san, Ibuki-san, and then Karuizawa-san,” said Horikita. 
+“I see. In that case, yeah, I’d be fourth. That’s why I was chosen as VIP,” said Karuizawa. She seemed impressed. 
+At first glance, you’d have thought that the two girls sitting with me were completely incompatible, but Hirata’s presence made the discomfort between them mysteriously disappear. 
+“But isn’t that really, really simple? I mean, practically anyone could figure it out. Like, the fifth person in the dragon group was Kushida-san, so she was the VIP, right?” asked Karuizawa. 
+She put a straw in her milk carton and sipped. 
+“It was that simple. However, figuring that out in the middle of an exam wasn’t so easy.
+With only three VIPs in your own class, you wouldn’t have had enough solid data to determine the system behind the selection,” explained Horikita.
+If we’d known the names of the three VIPs in another class, we might have seen the pattern.
+However, even if we’d had a theory about how the VIPs were chosen, it would have been risky. If we were off, we could have taken considerable damage. 
+Of course, on the other hand, if we’d bet the farm and won, we might’ve turned everything around in a single stroke.
+“I’m worried about Class C, though. I think Ryuuen-kun figured it all out in the middle of the test,” said Hirata. 
+He was probably right. 
+“If that’s true, then why did he mess up?” asked Karuizawa.
+“I wondered about that, too. If he understood the rules, he should have discovered all the VIPs,” said Hirata.
+Horikita offered a different perspective on the matter.
+“Though it appears that Ryuuen-kun rules Class C alone, perhaps that isn’t actually true. More than a handful of people are probably deeply dissatisfied with his dictatorship.”
+“Yes. A rebellious student must’ve tossed out the wrong answer in direct defiance of Ryuuen-kun.”
+Horikita and Hirata were onto something, but we still couldn’t be sure. If there was a traitor, Ryuuen would’ve searched for them relentlessly.
+Even if that person had deleted the email, Ryuuen would probably have gone so far as to check people’s private points.
+“What do you think, Ayanokouji-kun?” asked Horikita. 
+Hirata and Karuizawa looked to me at the same time. I broke out coughing, discomfited by the force of their combined attention. 
+“Dunno. I honestly don’t have a clue,” I lied.
+Horikita and Hirata looked away, losing interest all at once. Only Karuizawa still stared at me. I met her gaze, and she diverted her eyes.
+“In any case, our first priority is to cement this relationship. I’m glad we’re discussing this, Horikita-san and Ayanokouji-kun,” said Hirata. 
+Horikita had never cooperated with Hirata before. However, her attitude had finally begun to change after the two special exams.
+Being driven into a corner made her start to realize the truth: that she couldn’t do this alone. 
+“Well, we don’t really have a choice. The zodiac exam was a special case. If we assume that future exams may have similar elements, though, then a certain degree of cooperation will be necessary,” replied Horikita.
+“That said, you evaded Ryuuen-kun’s clutches quite well.” 
+The last part was aimed at Karuizawa, who’d been my group’s VIP, and managed to get through the exam without being discovered. Class D had been well rewarded for that victory. 
+“Well, I guess. I do have a surprisingly good poker face. Right, Yousuke-kun?” asked Karuizawa.
+She hugged Hirata’s arm and looked at him with upturned eyes. You’d never have thought that their relationship had been strained, though whether that was genuine or an act
+didn’t interest me. Wait a minute—Yousuke? When had Karuizawa suddenly started calling Hirata by his first name?
+I kind of wanted to call him by his first name, too, but it was impossible. Hirata and Karuizawa had forged a new relationship out of their complicated situation, which most
+likely made them closer friends. Hirata returned Karuizawa’s smile, then turned to Horikita. 
+“I actually have a proposal. Want to hear it?” Hirata asked.
+Horikita gave no response—her way of telling him to speak.
+“First, to bring our class together, I’d like to rope in Kushida-san as an ally. I think she’ll complement our group well and add qualities that the four of us lack.
+She could potentially unite a lot of the boys, starting with Ike-kun and Yamauchi-kun.”
+“Unnecessary,” replied Horikita.
+“I won’t deny the fact that she has certain skills, but we can do anything she can on our own. That’s why I selected you and Karuizawa-san.
+With your combined talents, we can solve any problem that faces us…unless you plan to be uncooperative, like a certain someone.” 
+She side-eyed me. How rude. 
+“It’s certainly true that Ayanokouji might not follow our lead,” added Karuizawa.
+She and Horikita nodded, though Hirata did not. 
+“Look, you’re mistaken if you think I’m the uncooperative one. I’m the guy most likely to quietly go along with a group. I’m exactly the sort of person you can control. I have no presence,” I said. 
+“Those who claim that they have no presence usually cast long shadows,” replied Horikita.
+“Okay. So, are you someone with no presence?” I asked. 
+“Me? There’s no way I could have no presence. How dare you? Do you take me for a fool?” she demanded. 
+“Uh…sorry.” 
+The whole conversation was devolving into some half-baked comedy sketch, although Horikita didn’t appear to be joking around. 
+You could never quite tell when she was playing, but I thought she was definitely serious.
 ```
 
 [:arrow_up:](#plot-b)
