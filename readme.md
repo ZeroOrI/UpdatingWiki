@@ -780,12 +780,6 @@ Of course, it got worse after that. No one admitted the truth. But she still is 
 
 **Hirata also brought up the subject of how they could further unify their class going forward. He suggested to rope in Kushida as an ally. Horikita said that was unnecessary while they two planned to be uncooperative like Kiyotaka. Kei agreed with her on that matter.** [45](#45change)
 
-**Suzune also agrees, and then she proposes a supplementary plan where, in addition to letting the students who are more talented at sports participate in the Recommended Only events, they should also pair up the stronger athletes with the weaker ones in the Universal Participation events in order to further increase the chances of victory for the stronger athletes. Some students disagree to this tactic as it would mean sacrificing the less athletic students. Karuizawa in particular objects and asks Kikyō Kushida for her opinion. Kushida replies that she would prefer a plan where both sides could benefit and agree on. A vote of majority is taken and Suzune's plan wins.
-
-Sudō reiterates his intention to participate in as many events as possible. Suzune also declares that she would do the same. The class begins filling the slots for the events. Discussion ends for the day.
-
-After school, Kiyotaka sends an email to someone. He then meets Karuizawa out in the hallway, and they talk about the message Kiyotaka had sent her earlier - to object to any plan Suzune comes up with before immediately asking for Kushida's opinion. Karuizawa asks Kiyotaka what his intentions are, and Kiyotaka says he has no interest in reaching Class A but it also wouldn't be bad to put Class D in a position where they are capable of it. Their conversation ends with Kiyotaka predicting that there would be a traitor coming from Class D during the sports festival.**
-
 
 [Return to content](#content)
 
