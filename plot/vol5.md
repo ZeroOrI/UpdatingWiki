@@ -1,3 +1,8 @@
+## Return Back
+
+[:arrow_up:](../readme.md)
+
+
 **Gathered in the Pallet cafe at the end of their summer vacation, Kiyotaka Ayanokōji, Kei Karuizawa, Yōsuke Hirata, and Suzune Horikita talk about the results of the zodiac special exam that took place on the cruise ship. The students’ surnames were the key to figuring out the VIPs’ identities. They were assigned in the order of the animals of the zodiac. Hirata also brings up the subject of how they can further unify their class going forward. The rabbit is fourth in the zodiac. If you put the names of the students in the rabbit group in alphabetical order, it would be Ayanokouji, Ichinose, Ibuki, and then Kei. Because of that Kei became VIP.**
 
 **At first glance, everyone'd have thought that the two girls sitting here were completely incompatible, but Hirata’s presence made the discomfort between them mysteriously disappear.**
