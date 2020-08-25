@@ -1,3 +1,8 @@
+## Return Back
+
+[:arrow_up:](../readme.md)
+
+
 ### New Version
 
 **Anime adapted first 3 volumes of light novel and pool episode from volume 4.5. But scenes related to Kei was cut off or changed drasically.**
