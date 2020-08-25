@@ -1,3 +1,8 @@
+## Return Back
+
+[:arrow_up:](../readme.md)
+
+
 ### Old Version
 
 In the light novel, there was another exam on the ship after their return from the survival island. In this exam, their objective was to find a traitor hidden among the groups that were divided into 12 different groups based on the Chinese zodiac's names among all classes. Kei was put into the same group as Kiyotaka, Teruhiko Yukimura, Hideo Sotomura, and students from other classes such as Honami Ichinose from B-Class, Machida from A-Class, and Mio Ibuki and Shiho Manabe from C-Class. Kei couldn't hide her dissatisfaction when seeing Kiyotaka and others as her groupmates. [9](../references/original.md)
