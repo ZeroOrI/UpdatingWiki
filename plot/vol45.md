@@ -1,3 +1,8 @@
+## Return Back
+
+[:arrow_up:](../readme.md)
+
+
 **At the end of summer vacation Kiyotaka called Kei to rest area. This spot became desserted due to heat, so nobody was there and could see them two them together. Ayanokoji apologized for this sudden call, but Kei replied that she still didn't do anything and was just hanging out in her room. It was because that she's already spent all her points, so when Kiyo asked about her plans for tommorow she answer that she was going to sleep. Kiyotake reminded that she will get 500.000 points in next month and teased her because she is a shopaholic and can't keep points.  When topic of dialogue came to points Karuizawa expressed her concerns about is it normal for students to have so much money. But he reassured and said that that she don't have to worry about it, she just needs to maintain balance between wants and needs. If she suddenly changed from spendthrift to miserly, students might get suspicious.**
 
 **Before Ayanokoji could tell her why he called her, Kei asked for apologizing for calling out there on such hot day. He offered her bottle of tea. She hesitated, then reluctantly accepted it. Karuizawa struggled to uncap her drink. After poor joke Kiyotaka he helped her.**
